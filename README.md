@@ -12,7 +12,7 @@
   chat_description
 
 ### 优质高清AV＆群组大全
-- 链接: https://t.me/+nu3vdjSjvk8yNzk1 - 3 位成员
+- 链接: https://t.me/+7pjmFu17zmFjNDc1 - 3 位成员
   NULL
 
 ### 学霸123索引联盟壹号?
@@ -17916,7 +17916,7 @@
   【 ?开 元 棋 牌 官 方 直 营 】70 % 分 红 工作室|个人|团队|网红|主播|电销|媒体 站长?劫持?渗透?黑帽 SEO?ASO?CPA?CPS 【 招商频道：https://t.me/KYDLZS_RS7 】
 
 ### 学霸123索引联盟
-- 链接: https://t.me/+r0l5iVwezKJlYWY1 - 3 位成员
+- 链接: https://t.me/+hrlcilE1UZc2MDk9 - 3 位成员
   NULL
 
 ### 404NotFound程序员交流群
@@ -18754,4 +18754,8 @@
 ### MJ交流群
 - 链接: https://t.me/+0oKKaL2GkSA3Yzg1 - 911 位成员
   https://juzz.app/ 下载地址
+
+### 学霸123索引联盟
+- 链接: https://t.me/xueba123bot - 3 位成员
+  NULL
 
