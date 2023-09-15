@@ -3,7 +3,9 @@
 
 ## 内容来自 @xueba_bot 电报机器人
 > 欢迎大家添加 @xueba_bot 或 [https://t.me/+dd4KwDN07Og2ZGI1](https://t.me/+dd4KwDN07Og2ZGI1) 搜索自己喜欢的群组
+
 AIGC导航：https://xueba123.cn 
+
  国内可用CHATGPT：https://chatgpt.xueba123.cn
 
 ## 群组信息
