@@ -4,9 +4,9 @@
 ## 内容来自 @xueba_bot 电报机器人
 > 欢迎大家添加 @xueba_bot 或 [https://t.me/+dd4KwDN07Og2ZGI1](https://t.me/+dd4KwDN07Og2ZGI1) 搜索自己喜欢的群组
 
-AIGC导航：https://xueba123.cn 
+> AIGC导航地址🚩：https://xueba123.cn 
 
- 国内可用CHATGPT：https://chatgpt.xueba123.cn
+ > 国内可用chatgpt地址🚩：https://chatgpt.xueba123.cn
 
 ## 群组信息
 > 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot 或 [https://t.me/xueba123bot](https://t.me/xueba123bot) 搜索自己喜欢的群组
