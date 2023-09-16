@@ -20,7 +20,7 @@
   NULL
 
 ### 学霸123索引联盟壹号?
-- 链接: https://t.me/+T_EMr5g1krw3ZGVl - 21 位成员
+- 链接: https://t.me/hmnana - 20 位成员
   NULL
 
 ### ALL About RSS
