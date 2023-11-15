@@ -20,7 +20,7 @@
   NULL
 
 ### 学霸123索引联盟壹号?
-- 链接: https://t.me/+-0B6-tebWmhhY2Nl - 85 位成员
+- 链接: https://t.me/+8M-ZqvsI5Y00OWFl - 85 位成员
   NULL
 
 ### ALL About RSS
@@ -8224,7 +8224,7 @@
   电报频道，讨论组收录，推广，专注收录telegram频道你可以到这里推荐你的群组：https://t.me/smsgoucom♡方便搜索请去网站：https://dog.tg♡频道主可以选择去网站自主提交频道信息https://dog.tg/include
 
 ### leeesovely写真2022最新
-- 链接: https://t.me/leeesovely2 - 1846 位成员
+- 链接: https://t.me/leeesovely2 - 1848 位成员
   本群分享一些leeesovely的写着资源，https://www.patreon.com/leeesovely这是李素英的官方写真网站，有条件的可以去支持她！
 
 ### 社工库机器人
@@ -8352,8 +8352,8 @@
   官网：www.cycity.pro
 
 ### 兴趣使然中转站『主频道』
-- 链接: https://t.me/galgameyesHCG - 3803 位成员
-  “全球首家”『全网最大』的中文galgame hs鉴赏频道上线啦(•̀ᴗ•́)و 淫书馆 现有“藏书” 500余部 系列400余个 视频万余个 总时长数千余小时无广告在线体验，被窝鉴赏再也不怕“c过头”了，避免自己尴尬，有进度条的hs鉴赏 真香！本频道是以日本美少女游戏 galgame 色图 视频 为主要内容的频道
+- 链接: https://t.me/galgameyesHCG - 3816 位成员
+  “全球首家”『全网最大』的中文galgame hs鉴赏频道上线啦(•̀ᴗ•́)و 淫书馆 现有“藏书” 700余部 系列500余个 视频万余个 总时长数千余小时无广告在线体验，被窝鉴赏再也不怕“c过头”了，避免自己尴尬，有进度条的hs鉴赏 真香！本频道是以日本美少女游戏 galgame 色图 视频 为主要内容的频道
 
 ### F0⃣0⃣8⃣5⃣2⃣睇圖頻道（每日更新）
 - 链接: https://t.me/F00852 - 25616 位成员
@@ -8396,7 +8396,7 @@
   高速稳定大流量机场，流媒体解锁稳定。官网：https://八方云.com/
 
 ### V指北? | 马儿快快跑
-- 链接: https://t.me/Vzhibei - 30828 位成员
+- 链接: https://t.me/Vzhibei - 30836 位成员
   你的网络Virtual身份，今天就由我来指北！真正的V是不需要赛博皮囊的，做最真实的自己才能活的潇洒；但是有的人嘴无遮拦又畏畏缩缩，这时候就需要揭开神必面纱，带领大家一起指北，，，评论区/交流群@liyi3cg附属频道@LiDeGuang@LuoWenJie2007你对纸片人的所有美好幻想都不要期待在Vtuber身上得到复现V指北自助吃瓜/双向bot @Vzhibei_bot助推:https://t.me/Vzhibei?boost
 
 ### ?????? ? 中之人
@@ -9484,7 +9484,7 @@
   专注微密圈 精选圈子 拒绝烂图充数
 
 ### 肥臀社⭕️微密圈预览/众筹
-- 链接: https://t.me/weimishare2 - 27842 位成员
+- 链接: https://t.me/weimishare2 - 27833 位成员
   ?欢迎加入中文索引生态社区致力打造Telegram最大的流量生态平台。官方频道：https://t.me/China1唯一管理员： @TeleTop678Bot
 
 ### 尤物圈?微密圈/抖音/快手/秀人/网红/福利
