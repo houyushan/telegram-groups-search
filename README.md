@@ -4,9 +4,7 @@
 ## 内容来自 @xueba_bot 电报机器人
 > 🚩🚩🚩欢迎大家添加 @xueba_bot 或 群组[https://t.me/hmnana](https://t.me/hmnana) 搜索自己喜欢的群组
 
-> 🚩AIGC导航地址🚩：https://xueba123.cn 
-
- > 🚩国内可用chatgpt地址🚩：https://chatgpt.xueba123.cn
+> 🚩AIGC导航地址🚩：http://101.133.229.203/ 
 
 ## 群组信息
 > 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot 或 [https://t.me/xueba123bot](https://t.me/xueba123bot) 搜索自己喜欢的群组
@@ -20,7 +18,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+WmbiFgl9FBg5MDBl - 119 位成员
+- 链接: https://t.me/+JP_yUBQRtAQxYmI1 - 121 位成员
   NULL
 
 ### ALL About RSS
@@ -148,7 +146,7 @@
   本频道内容将包含：- RSSHub 核心更新- RSSHub 路由更新- RSSHub Radar 插件更新- rsshub.app 服务相关- RSSHub 新动向频道由 RSSHub 强力驱动，频道目录：#RSSHub核心更新#RSSHubRadar更新#rsshubapp#SecurityAdvisoriesRSSHub 有新路由啦RSSHub 有新赞助商啦? 万物皆可 RSS
 
 ### 白丝即正义
-- 链接: https://t.me/baisi - 101183 位成员
+- 链接: https://t.me/baisi - 101258 位成员
   本频道会不定时推送一些绅士老爷们喜闻乐见的福利闲聊＆报错＆申诉: @nekopara关联频道: @moepic @nekosc @MagicCabal
 
 ### 那些好看的Tg主题
@@ -2648,7 +2646,7 @@
   Telegram 中文/汉化/知识/教程, 科技, 机场, 科学上网......禁止复制频道内容，转载消息请用转发或消息链接，复制粘贴请标注来源！👥Telegram 20万人群 @tgcnx👥Telegram 中文群2  @tgzhcn📢Telegram 中文频道 @tgcnz
 
 ### wikipedia-zh
-- 链接: https://t.me/wikipedia_zh_n - 27445 位成员
+- 链接: https://t.me/wikipedia_zh_n - 27447 位成员
   本群組為中文維基百科聊天室，主要讨论维基百科站务。本群另有IRC及discord两群，由转发机器人互联，对话互相可见。平日里，群中总是有管理员和资深用户在线，所以可以随时提问，或者解决遇到的问题。請帮助維護秩序和融洽的气氛，不要人身攻擊、洩漏隱私或洗版。規則： wikipedia-zh.github.io/imc/regulations/bgr #公告本群有一些正式分群，可參見 https://t.me/wikipedia_zh_n/1295507群頭像由User:燃灯設計
 
 ### hao123老色批交流群|搜索资源
@@ -8200,7 +8198,7 @@
   🔥 电子书 🔥资源收集自网络。🔥 破解软件🔥：https://t.me/fuliziyuan🔥 教程 🔥：https://t.me/jiaocheng🔥 网购优惠 🔥 ：https://t.me/wgsqpd
 
 ### 「VoP」維尼之聲 - Voice of Pooh🔊
-- 链接: https://t.me/VoiceofPooh - 29835 位成员
+- 链接: https://t.me/VoiceofPooh - 29838 位成员
   本頻道特色有:維尼主題/兩岸三地/世界時事/版面評論/互動投票自助投稿Bot: @VOPeditorBot聯絡編輯: @VOPeditor2_botTwitter地址: @RealEmperorPooh營業時間:08:00-23:59 (UTC+8)易推廣便捷通道 http://voiceofpooh.com友鏈：@Ruters0615 乳透社@VoiceofCN 中國文宣@XueXiNmsland 學習牆國@warmacd 查檔找老賴資產調查
 
 ### RFI 华语 - 法国国际广播电台
@@ -8620,7 +8618,7 @@
   站在前沿，寻找 alpha不构成投资建议，Do your own research
 
 ### LSJ GAMES 官方TG頻道
-- 链接: https://t.me/lsjxyzchannel - 2687 位成员
+- 链接: https://t.me/lsjxyzchannel - 2684 位成员
   中文圈最大H-Game網站~老司機遊玩官方TG頻道❣️ https://www.mylsj.xyz/
 
 ### 兔兔ASMR中文音声 日文音声频道
@@ -9484,7 +9482,7 @@
   专注微密圈 精选圈子 拒绝烂图充数
 
 ### 肥臀社⭕️微密圈预览/众筹
-- 链接: https://t.me/weimishare2 - 27656 位成员
+- 链接: https://t.me/weimishare2 - 27645 位成员
   🔥欢迎加入中文索引生态社区致力打造Telegram最大的流量生态平台。官方频道：https://t.me/China1唯一管理员： @TeleTop678Bot
 
 ### 尤物圈?微密圈/抖音/快手/秀人/网红/福利
@@ -10532,7 +10530,7 @@
   直男群的NSFW频道狗爹汉化组官方【Telegram漫游指南】https://t.me/goudaddy/591群友推荐的瑟琴频道都整理到最下面的【隐藏秘籍】里喽😉【提供资源或合作请联系】@xmswl
 
 ### 维咔VikACG（WeCute）
-- 链接: https://t.me/vikacg - 10765 位成员
+- 链接: https://t.me/vikacg - 10767 位成员
   @vikacg維咔telegram公告板📢，在這裡獲取更多關於維咔VikACG的公告維咔是一个能輕鬆獲取二次元資源的手機程式：https://www.vikacg.com/app
 
 ### Six Dimension 六度
@@ -11124,7 +11122,7 @@
   只介紹對的 不介紹貴的 私 @dior991 推薦區： @chanel824 詢問不收費 解答不要錢 歡迎打擾 賴6y28
 
 ### 杰尼龟和他的订阅们
-- 链接: https://t.me/jieniguijichang - 15265 位成员
+- 链接: https://t.me/jieniguijichang - 15328 位成员
   交流群组：https://t.me/jieniguidepd本频道旨在测试本人和朋友们实际体验过的各种机场，测试不代表推荐，请各位自行揣摩暂无后端接受意图暂无授权免费意图
 
 ### 小牛VPN官方群-免费VPN-科学上网-V2Ray
@@ -20756,7 +20754,7 @@
   一键换脸，一键去衣
 
 ### VAM交流群
-- 链接: https://t.me/vam_chat_and_share - 809 位成员
+- 链接: https://t.me/vam_chat_and_share - 817 位成员
   VAM资源交流与分享
 
 ### 自sha人民共和国
