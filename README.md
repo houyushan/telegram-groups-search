@@ -18,7 +18,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+p998ttA_TrQ1NDFl - 129 位成员
+- 链接: https://t.me/+43i5GNuiMoRmY2Y1 - 131 位成员
   NULL
 
 ### ALL About RSS
@@ -70,7 +70,7 @@
   ⭐️收集推荐网盘资源站点（不局限于alist哦）Alist官方交流： @alist_chatAlist官方网站： https://alist.nn.ci
 
 ### 阿里云盘发布频道
-- 链接: https://t.me/Aliyundrive_Share_Channel - 71556 位成员
+- 链接: https://t.me/Aliyundrive_Share_Channel - 72366 位成员
   和谐、友爱的阿里云盘分享交流频道，每个人在这里都可以分享自己想分享的资源。✨投稿 搜索 请使用 @AliYunPanBot交流群@alyd_g
 
 ### 阿里云盘4K影视
@@ -494,7 +494,7 @@
   高清壁纸美女模特美图。
 
 ### 纪录片爱好者
-- 链接: https://t.me/jlpahz - 11783 位成员
+- 链接: https://t.me/jlpahz - 12410 位成员
   《纪录片爱好者》是一个专注分享高清纪录片的频道,我们将为您提供BBC、国家地理频道、Discovery、NHK、探索频道等大量高清纪录片的在线观看或下载。并且让你大大降低观看、下载的成本。本频道还将为您提供最新的纪录片，并努力使她成为纪录片爱好者的乐园。本频道发布的视频均来自网络，版权归原作者所有。如有侵权，请及时知会本频道主。欢迎关注！
 
 ### 日语学习
@@ -802,7 +802,7 @@
   精选音乐收藏馆
 
 ### 糗事百科
-- 链接: https://t.me/qiushibaike - 2723 位成员
+- 链接: https://t.me/qiushibaike - 2694 位成员
   糗事百科是一个原创的糗事笑话分享社区,糗百网友分享的搞笑段子、搞笑图片大全,都是糗友最珍贵的开心经历,爆笑糗事笑话只在糗事百科！
 
 ### Rachel 碎碎念
@@ -814,7 +814,7 @@
   Infuse 私人影库资源频道
 
 ### [好读] ReadFine电子书屋
-- 链接: https://t.me/Readfine - 53914 位成员
+- 链接: https://t.me/Readfine - 54081 位成员
   好读提供电子书一站式体验，包括评分|简介|封面，一键下载，享受读趣。在这里，因为有您的陪伴，阅读变得并不孤单。频道只负责搜索资源并不对内容负责。交流群 @ReadfineChat▎分类标签（只适用tg自带搜索）科普、医学、心理、历史、近代史、世界史、政治、禁书、社科、科幻、商业、理财、管理、饮食、推理、法律、悬疑、奇幻、军事、经典、两性、哲学、小说、游历、教育、随笔、文学、文化、纪实、自我成长、耽美、宗教、回忆录
 
 ### Readhub
@@ -934,7 +934,7 @@
   分享一些以Notion为主的信息/技巧/用法
 
 ### 表情包👾贴纸
-- 链接: https://t.me/tiezhia - 35915 位成员
+- 链接: https://t.me/tiezhia - 36736 位成员
   电报专业贴纸、表情包分享~万人聊天群👉  @wangrenqun绅士联盟👉  @teleisthebest电报中国👉 @ZG_lsj
 
 ### Time经济观察
@@ -950,7 +950,7 @@
   转发互联网上有趣的内容，此频道由多人维护。
 
 ### 竹新社
-- 链接: https://t.me/tnews365 - 93291 位成员
+- 链接: https://t.me/tnews365 - 93350 位成员
   7×24不定时编译国内外媒体的即时新闻报道。查阅新闻资料，前往竹新资料室： t.me/kt_database讨论新闻事件，前往读者交流群： t.me/+IuVKIlOj7_Q0MDU1如有任何问题，联系竹新社小编： t.me/ktnews_editor_bot注：本频道原创新闻按照CC-BY-4.0协议发布。
 
 ### 托尔酱的梗图与FW
@@ -1170,7 +1170,7 @@
   每天一张人工精选壁纸
 
 ### GIF 群聚地
-- 链接: https://t.me/GIFgroupTW - 32751 位成员
+- 链接: https://t.me/GIFgroupTW - 32739 位成员
   「血腥」「R-18」與「簡體」為禁發項目，動圖屬性交由管理群判定；灰色地帶管理群持保留解釋權力，勿有試探底線行為。發佈非相關連結與內容將直接踢除本群，若有辱罵等鬧群事實，屢勸不聽者亦將踢除本群。 GIF 相關的討論可接受。置頂訊息👉 t.me/GIFgroupTW/523008臺灣群👉 t.me/FormosaTaiwan貼圖群👉 t.me/StickerGroupNSFW動圖群👉 t.me/NSFW_EroGIFgroup
 
 ### Scriptable 交流群
@@ -1574,7 +1574,7 @@
   News channel for the Vanced.Telegram Group: https://t.me/joinchat/nF8JXiQur9A5OGZkDiscord Group: https://vancedapp.com/discordOfficial website : https://vancedapp.com/All credits to Razerman, ZaneZam, Laura Almeida and KevinX8.
 
 ### 键政群|口嗨群|键盘侠俱乐部|俄罗斯vs乌克兰
-- 链接: https://t.me/key_policy - 5158 位成员
+- 链接: https://t.me/key_policy - 5170 位成员
   其他群有限制有群规，你们不喜欢这个就是你们想要的群：无限制无群规如果你被禁言，那你是被机器人禁言，这儿有删广告的机器人，你触发了删广告机器人的规则 ，禁言到时间了会自动解除 ！不是管理禁的，这儿根本没管理 。更不是群主禁的，群主根本没看群里聊什么内容。
 
 ### Listen to Reza ?
@@ -1606,7 +1606,7 @@
   ? 优质线路，IPLC&BGP全中转线路? 全客户端，安卓/iOS/Win/Mac无缝切换? 全球覆盖，无缝连接亚美欧澳四大洲?? 版权限制，海外用户惬意使用回国节点? 安全加密，确保您的隐私与安全? 一键加速，流媒体/网页/APP流畅访问? 免费试用，满意再付款，付款后更好使? 好用不贵，年费会员权益更多节省更多? 客服支持，全天候解答您的任何问题网站： zxfast.com群组： @zxfast频道： @zxfast_channel奈飞合租： @b_netflixtown
 
 ### [合租通知] Netflix|YouTube|Spotify|office365|Hbo|Surge|美剧|等音乐影视聊天机场电影盒子
-- 链接: https://t.me/hezu2 - 94468 位成员
+- 链接: https://t.me/hezu2 - 94501 位成员
   好物、街拍、软件、Apple、EXE、小说、搞笑、资源、视频、中文、Google、返利、二次元、自拍、机场、鉴、羊王、光棍协会、weibo、合租、软路由
 
 ### Recep Tayyip Erdoğan
@@ -1758,7 +1758,7 @@
   捡漏线报QQ微信群  https://jinshuju.net/f/tZwNdJ ⬇️羊王?频道  @yangwangpindao  ? 羊毛超级搜群组 @dajiajia ⬇️福利超级搜网站 tb.applebl.com ⬇️小火箭共享ID 独享ID 兑换码       wohaobang.cn?频道主 好棒的羊王  @haobangdada? 羊毛超级自助搜 @dajiajia
 
 ### ss、ssr、v2ray机场测速
-- 链接: https://t.me/askahh - 16290 位成员
+- 链接: https://t.me/askahh - 16380 位成员
   本频道主要分享一些免费便宜机场和稳定机场。如想要投稿机场或者对本频道有所建议等等，可以私聊  @AiskahhhBot机场测速博客 www.askahh.com科学上网  资源 翻墙 梯子
 
 ### 造物指南
@@ -2226,7 +2226,7 @@
   Adguard 的非官方中文群组。官网：https://adguard.com/zh_cn频道： @AdguardNews群组： @Adguard_CN合租群组： @Licensess合租频道： @Licensesss禁止开车！色情！钓鱼！机场广告！任意广告！粗鄙之语，绝对禁止！禁止讨论/乞讨/分享盗版！看到就!ban本群不接待宝宝！
 
 ### M-Team official chat - Chinese
-- 链接: https://t.me/M_Team_Chat - 23614 位成员
+- 链接: https://t.me/M_Team_Chat - 23712 位成员
   公吿區 https://t.me/M_Team
 
 ### 开放测试｜? 火箭写书
@@ -2394,7 +2394,7 @@
   ?Реклама: @Nasty_manager??‍? Менеджер: @diming24____________@iWallpaper@RU_TRACKER
 
 ### [合租社群]Netflix|YouTube|Spotify |office365|Hbo|Surge|美剧|等音乐影视聊天机场电影盒子软路由
-- 链接: https://t.me/hezu1 - 72766 位成员
+- 链接: https://t.me/hezu1 - 72815 位成员
   合租指南:  https://hezu.wiki敬请关注通知频道 @hezu2📣聊天群规如下：    1️⃣本群属于合租交流群，禁止讨论政治，宗教，种族歧视，色情相关内容。    2️⃣建议先Google之后再提问，对于频道置顶中已解答的问题不会重复回复。    3️⃣本群为交流群，不参与任何的商业活动，不买卖任何商品（机场/VPS/各种号码账号等等）    4️⃣合租有风险，打钱需！谨慎，建议支付宝加好友预约转账，月付防止跑路，本群只提供平台，被骗后果自负！    ⚠️吵架滋事者一律踢
 
 ### 酷安
@@ -2642,11 +2642,11 @@
   Nathosts官方讨论群 官网www.nathosts.com
 
 ### Telegram 中文频道 🅥
-- 链接: https://t.me/tgcnz - 191552 位成员
+- 链接: https://t.me/tgcnz - 193566 位成员
   Telegram 中文/汉化/知识/教程, 科技, 机场, 科学上网......禁止复制频道内容，转载消息请用转发或消息链接，复制粘贴请标注来源！👥Telegram 20万人群 @tgcnx👥Telegram 中文群2  @tgzhcn📢Telegram 中文频道 @tgcnz
 
 ### wikipedia-zh
-- 链接: https://t.me/wikipedia_zh_n - 27518 位成员
+- 链接: https://t.me/wikipedia_zh_n - 27517 位成员
   本群組為中文維基百科聊天室，主要讨论维基百科站务。本群另有IRC及discord两群，由转发机器人互联，对话互相可见。平日里，群中总是有管理员和资深用户在线，所以可以随时提问，或者解决遇到的问题。請帮助維護秩序和融洽的气氛，不要人身攻擊、洩漏隱私或洗版。規則： wikipedia-zh.github.io/imc/regulations/bgr #公告本群有一些正式分群，可參見 https://t.me/wikipedia_zh_n/1295507群頭像由User:燃灯設計
 
 ### hao123老色批交流群|搜索资源
@@ -2990,7 +2990,7 @@
   ? 这里是Loon的官方群组? 官方频道 https://t.me/LoonNews?️ 官方教程 https://is.gd/V6nyGA? 官方手册 http://docs.nsloon.com/? 商店地址 https://apps.apple.com/app/loon/id1373567447ℹ️ 禁止讨论共享、盗版、破解、免流、政治及色情！ℹ️ 禁止人身攻击、任意广告及令人反感的任何内容！
 
 ### Java 编程语言
-- 链接: https://t.me/Javaer - 11662 位成员
+- 链接: https://t.me/Javaer - 11678 位成员
   Java 一种物件导向程式设计编程语言 ，不是 JAV 群（SFW）pin：https://t.me/Javaer/470283请勿以大段文字/表情/图片刷屏。过长文本请使用 pastebin 类服务发送。** >>>进群先看置顶消息<<< **** >>>Check pin message first. <<< **This group mainly discuss in Chinese.
 
 ### wikipedia-zh-food&drink
@@ -3034,7 +3034,7 @@
   此Channel主要用作前端方向的开发同学在Telegram上的技术交流平台，不定期分享Vue.js/React/Node.js/Chrome/ECMA-TC39/W3C等相关的最新动态和前端领域相关的优质文章，以技术交流为主，分享碰撞不同的观点、经验和想法。友情联盟： @coderzh
 
 ### 老毛子Padavan固件IOS自助交流群
-- 链接: https://t.me/pdcn3 - 6742 位成员
+- 链接: https://t.me/pdcn3 - 6809 位成员
   老毛子Padavan固件自助交流群http://t.me/pdcn2老毛子Padavan固件IOS自助交流群http://t.me/pdcn3老毛子Padavan固件发布http://t.me/pdcn1固件下载地址：https://opt.cn2qq.com/padavan
 
 ### 杂物
@@ -3074,7 +3074,7 @@
   Combination of Social Networking.
 
 ### 科学上网观察与机场测速
-- 链接: https://t.me/jichangtj - 64375 位成员
+- 链接: https://t.me/jichangtj - 64445 位成员
   #机场推荐 #机场测速 #机场评测 /观察/点评，科学上网和科技相关新闻资讯；不收机场主主动投稿，只测我自己找的，选机场要求很高！只找机场主肉身在墙外快速且稳定的机场，觉得好我会主动联系。主观测评。#机场推荐 : reurl.cc/WvnQA9Twitter: twitter.com/jichangtj群：t.me/+LqfqA1OBugBkYjE9管理私聊bot @jichangtjBot黑丝频道： @aiheisi2白丝频道： @aibaisi
 
 ### HAX.co.id
@@ -3142,7 +3142,7 @@
   Beta version - https://telegram.org/dl/macos/betaStable version - https://macos.telegram.org
 
 ### 嗶咔嗶咔頻道 - Pica Channel
-- 链接: https://t.me/PicACG - 148785 位成员
+- 链接: https://t.me/PicACG - 148820 位成员
   嗶咔漫畫官方頻道，由官方及官方授權者營運。請即訂閱本頻道以取得嗶咔的最新資訊（以及各種無聊廢話）。官網：picacomic.com（繁中）https://pica2023.com/ （簡中）電郵：picapicacomic@gmail.com
 
 ### 每日消费电子观察
@@ -3170,7 +3170,7 @@
   Nathosts官方公告群
 
 ### 流浪防区 China_irl
-- 链接: https://t.me/China_irl - 7409 位成员
+- 链接: https://t.me/China_irl - 7419 位成员
   流浪防区 China_irl 官方群，已与r/china_irl割席。已割席！*浪友别来错地方*1. 不要人身攻击、各类歧视仇恨、地图炮及开盒社工库直接ban，你sub mod不受群规保护2. 不要发布淫秽血腥等令人不适的内容3. 除非你已经查证消息为真，不要发送/转发极低可信度内容4. 不要挂人（指将非公众人物的具有争议性的言论及其身份公布、扩散于网络社区，用于引起其他人的“声讨”或“嘲讽”的一种网络暴力行为）5.不要发布其他不宜发布的内容
 
 ### BlackBerry Fans
@@ -3454,7 +3454,7 @@
   「Telegram 新手指南」频道 @Newbie_Guide 的附属群组，主要用于频道内容反馈与建议、对频道内未提及问题的社区支持与帮助。群组规则：https://telegra.ph/Regulation-of-Telegram-Newbie-Chat-08-16
 
 ### 品云☁️测速
-- 链接: https://t.me/PinYunPs - 18829 位成员
+- 链接: https://t.me/PinYunPs - 18896 位成员
   细品各种云☁️对线群组：@PinYunYes品云合租：@PinYunHeZu品云推特：@PinYunYes送 测 Bot：@PinYunPm_Bot 品云导航：https://52.mk品云图床：https://3o.hk品云短链：https://dd.alPinYun is a non-profit organization dedicated to making the internet a better place for everyone.
 
 ### 远上寒山石径斜 🅥 🌈🌝🐳🍗🏳️‍🌈
@@ -3630,7 +3630,7 @@
   一起缺德鸭~ (｡>﹏<｡)语言： 简体中文 / 繁體中文禁止： 政治 / 广告 / 瑟图语录：  @AndroidMemory友链：  @FuckXiaomiGroup @AndroidDiscuss @AndroidDevChat @AndroidDevCN  @MDiA_cn 群机： t.me/AndroidDress/561055
 
 ### Terminus 终点站 <有问题看置顶和wiki|注册时间请关注频道>
-- 链接: https://t.me/EmbyPublic - 45243 位成员
+- 链接: https://t.me/EmbyPublic - 45251 位成员
   终点站通知: https://t.me/embypub 白嫖指南: https://embywiki.911997.xyz白嫖指南(备用): https://howtogayemby.911997.xyz/主用服务器无法使用时请切换备用！！！对Wiki有疑问先看置顶信息！
 
 ### Clash for Windows 汉化公告板
@@ -4126,7 +4126,7 @@
   Bug....投稿请发送至 @pill_posting_bot投稿用户请附上说明…不然管理员看不懂有可能将稿件忽略…邻居列表：https://t.me/wechatpill/79旧投稿Bot @tgpill_bot 已停止使用
 
 ### NEP.Anime | 动画仓库
-- 链接: https://t.me/AnimeNep - 66534 位成员
+- 链接: https://t.me/AnimeNep - 66621 位成员
   涅普涅普的动画仓库。(简/繁/日)频道机器人会抓取各大BT站的新番更新并自动上传发布。（原档，无二压）*上传的动画可以在Tg中直接播放，也可以下载后播放*服务器抽风的时候可能会出现更新延迟，如有问题请大力戳 @rkiorbot 索引: t.me/AnimeNep/21206 动画搜索&新番推送: @AnimeNepbot @Animenep_helper_bot 建议&报错&吐槽: @rkiorbot 公告&索引&讨论群: @roocc
 
 ### wikipedia-lzh
@@ -4310,7 +4310,7 @@
   如果京豆不更新了，请及时联系我 @zaihua_bot---京东京豆，第一时间领取。慢了就没有了。直播间京豆，跳转APP右上角 互动抽奖 领取
 
 ### Telegram 中文社群 🅥
-- 链接: https://t.me/tgcnx - 199996 位成员
+- 链接: https://t.me/tgcnx - 199998 位成员
   Telegram 中文/汉化/知识/教程, 科技, 机场, 科学上网......自由是有规则的，没规则的自由是混乱。禁言是机器人干的，退群重新加入即可。群规:* 禁止传播谣言/盗版* 禁止撕逼/谩骂/人身攻击/血腥/暴力* 禁止讨论免流/黄赌毒/宗教/政治/键政* 禁止广告/推广/黑产/灰产/暗网/刷屏/色情/开车/NSFW👥Telegram 20万人群 @tgcnx👥Telegram 中文群2  @tgzhcn📢Telegram 中文频道 @tgcnz
 
 ### ? 迟早药丸
@@ -4578,7 +4578,7 @@
   在本群，你甚至可以讨论V2Ray，新使用群: @v2fly_chat新公告频道: @v2fly这里严禁R18、政治、仇恨言论、阴谋论、传播（疑似）谣言、蓄（恶）意冒充他人、广告、诈骗、策划或实施违法活动等，禁止NSFW. 伸手党通常不会被ban但大概率被怼自闭
 
 ### iGame 游戏交流群
-- 链接: https://t.me/gamecn - 1479 位成员
+- 链接: https://t.me/gamecn - 1480 位成员
   天下玩家是一家。这里是游戏爱好者的交流群，讨论游戏限于：* PC游戏(Steam)，核心向游戏和独立游戏* 主机和掌机游戏（PS, Xbox, Nintendo等）* 核心向手机独立游戏频道：@cngame群内禁止盗版、政治、色情、广告、攻击性语言。
 
 ### CYL-科技
@@ -4630,7 +4630,7 @@
   [One SSR For Free&Focus on MTproto Proxy！]分享高速、稳定的公益Socks5/Mtp代理，直连Telegram
 
 ### Quantumult X
-- 链接: https://t.me/QuanXApp - 54216 位成员
+- 链接: https://t.me/QuanXApp - 54295 位成员
   Quantumult X 交流群⚠️群规如下，如有违反，立ban不解🈲 政治，包括带节奏，擦边球等🈲 盗版，包括讨论、推荐、分享破解、黑卡等🈲 广告，包括未经允许的群组/频道推广等🈲 色情，包括在色情的边缘疯狂试探等🈲 粗鄙，包括让人不适的文本和媒体等🈲 刷屏，包括玩 bot 🤖后台删记录的🈲 兜底，管理觉得要ban的频道:  @QuanXNews
 
 ### zZPiglet
@@ -5022,7 +5022,7 @@
   https://github.com/ACL4SSR/ACL4SSR 官方频道【推广】打开支付宝首页搜"711629184"领红包，领到大红包的小伙伴赶紧使用哦!群组只是为了启用评论功能而设置的，所以请不要加入。如需评论，请直接点击频道内推文下方的评论按钮（没有按钮的话就请升级到 Telegram 的最新版本），那个功能不需要加入群组也可以正常使用。如果加入了那个群，会被机器人踢出并封禁 1 天，被封禁的时候评论功能也是不可用的。
 
 ### zaobao.sg 早报
-- 链接: https://t.me/zaobaosg - 20948 位成员
+- 链接: https://t.me/zaobaosg - 20964 位成员
   以睿智亲和的内容，与你共谈天下事。下载《联合早报》App： zaobao.com.sg/products
 
 ### Scala User Group [zh]
@@ -5118,7 +5118,7 @@
   This group is intended for discussing the zh_CN (Simpified, langCN) translation for Telegram apps. You can suggest edits here: https://translations.telegram.org/zhlangcn/
 
 ### 中国数字时代
-- 链接: https://t.me/cdtchinesefeed - 39370 位成员
+- 链接: https://t.me/cdtchinesefeed - 39588 位成员
   官方名片：http://cdt.media官方推特账号：https://twitter.com/CDTChinese404文库频道：https://t.me/cdt404notfound视频频道：https://t.me/cdt404tv本站现已开通匿名投稿Bot @cdtmedia_bot  404投给CDT～
 
 ### Sukka's Notebook
@@ -5618,7 +5618,7 @@
   iOS 越狱交流群，也可以约基撩妹！但请不要讨论与政治有关话题！更严禁打广告和色情内容，一次警告，二次走你！你没看错，没有第三次！越狱消息广播：https://t.me/Jailbreak_CN
 
 ### Synology/黑群晖用户群
-- 链接: https://t.me/nasfan - 12570 位成员
+- 链接: https://t.me/nasfan - 12574 位成员
   更多教程请访问论坛 https://www.openos.org任何发布或转发消息中包含（黄赌毒+诈骗+未经管理允许的广告）  一律BAN
 
 ### NickTalk
@@ -5650,7 +5650,7 @@
   Android 广场，想建个纯粹一点的群，只交流分享 Android 相关的东西，少些不相干的内容。
 
 ### C 语言中文交流
-- 链接: https://t.me/Clanguagezh - 5545 位成员
+- 链接: https://t.me/Clanguagezh - 5542 位成员
   C 是一种通用的程式語言，广泛用于系统软件与应用软件的开发。禁止广告、招聘、引战、开车、拼车、黑产、灰产、过激言论、离题话题、作弊及有偿任务，将警告或封禁。吹水和编程起步请移步： @coder_ot关于本群使用生成式AI的相关规范及建议：不建议使用任何生成式AI来回答问题，如果你需要使用生成式AI，请自行使用，或总结后发出；禁止直接复制任何生成式AI的大段文本到群聊天，违反按照刷屏处理
 
 ### Official Counterparty Chat
@@ -5962,7 +5962,7 @@
   官网地址： dlk.xyz软件更换问题，请自行参考教程解决dlk.xyz/doc电脑端：Netch t.me/NetchSSR t.me/dlkvpn/913416Winxray t.me/dlkvpn/913418?single安卓端：ssrray t.me/dlkvpn/910709Mac： t.me/dlkvpn/913261DLK招affman推广员 超高比例分红！详谈联系@DLKvip
 
 ### 黑色交易市场
-- 链接: https://t.me/cn1949 - 4348 位成员
+- 链接: https://t.me/cn1949 - 4686 位成员
   中文telegram群组|交流|技术|资源|福利|酮体|老司机|比特币|菲柬泰越|暗网|黑客|数据|菠菜|CVV
 
 ### 北京
@@ -6038,7 +6038,7 @@
   ?网易云热评?  ?欢迎加入云村??你往往喜欢的不是文案??入口? @WenAnBa
 
 ### 广州粤语电报群 Cantonese Group
-- 链接: https://t.me/GuangzhouIT - 6151 位成员
+- 链接: https://t.me/GuangzhouIT - 6149 位成员
   广州交流群，系鼓励用粤语嘅同城交流群。本群只用于娱乐话题及日常交流，原则上唔允许政治话题，深夜时分白话讲嘅例外。ban一周起步:同个人不间断同屏幕刷屏消息 (一屏幕装不下=刷屏, 发相同信息3次以上)禁黄 禁NSFW，禁泄漏私人隐私，禁恶心表情包ban 棋牌/币/bc/AD 滥用# 禁轮子系网站进群默认禁言一段时间，请到小群请求解封https://t.me/joinchat/ScrVLBgpRcw3ZTkz
 
 ### Flysocks-公告频道
@@ -6074,7 +6074,7 @@
   胴体的秘密防失联频道，仅用于老群被封锁后新群链接通知。
 
 ### Cuttlefishの自留地
-- 链接: https://t.me/ddgksf2021 - 23817 位成员
+- 链接: https://t.me/ddgksf2021 - 24068 位成员
   ⭐️ 建议|投稿|广告|合作:  @ddgksf2013
 
 ### LoopDNS资讯播报
@@ -6130,7 +6130,7 @@
   自动抓取煎蛋首页推荐无聊图及其评论数据来源: https://jandan.net更新间隔: 一小时任何疑问请联系: @iovxw
 
 ### 黑科技软件资源分享
-- 链接: https://t.me/kkaifenxiang - 101770 位成员
+- 链接: https://t.me/kkaifenxiang - 104151 位成员
   分享免费实用高效率网络资源、黑科技软件、实用黑技巧。👥交流群💬： @blacktechsharing🍎iOS软件📢： @iospremiumapps英语雅思📢： @runrungoaway资源搜索：https://meow.tg/private/kkaifenxiang商务合作可私聊 @Little_Lamb_KK
 
 ### YearProgress
@@ -6162,7 +6162,7 @@
   Quantumult的非官方频道。美区下载地址：https://appsto.re/us/o1dOkb.i讨论组： https://t.me/quantumultapp
 
 ### 記者爆料網
-- 链接: https://t.me/reporter_Taiwan - 26888 位成员
+- 链接: https://t.me/reporter_Taiwan - 27026 位成员
   telegram中文版連結 https://t.me/setlanguage/taiwan本群組是由記者組成，給網友提供爆料影片照片之訊息，並提供給記者使用參考。歡迎引用畫面，但請出自引用處，讓辛苦的第一線人員擁有價值。歡迎加入line社群https://linktr.ee/reporter.taiwan投訴請到linehttps://lin.ee/34CyUcD5Efacebookhttps://www.facebook.com/reporter.taiwan
 
 ### [合租] YouTube Spotify HBO Netflix
@@ -6170,7 +6170,7 @@
   本合租群为无审核合租群，只是提供一个场所给有需要合租的朋友…请群友自行发车，自行甄别，出现问题自己负责…合租格式  会员名+地区+人数+付款期限(月付，季付，半年付，年付)+价格+付款方式+你的TG ID，试用期车不允许发车。⚠️合租频道请发合租相关内容‼️⚠️同一条合租信息严禁刷屏️‼️⚠️请合理设置合租价格（勿超过白嫖价格）‼️☠️价格太贵就直接ban了‼️⚠️冷门车请发账单🥰上车前记得查看车主注册时间、共群及聊天记录哦～🧐管理员察觉车主异常🉑warn / ban ‼️
 
 ### Telegram 中文圈 ❷
-- 链接: https://t.me/tgzhcn - 48106 位成员
+- 链接: https://t.me/tgzhcn - 48141 位成员
   Telegram 中文/汉化/知识/教程, 科技, 机场, 科学上网......自由是有规则的，没规则的自由是混乱。禁言是机器人干的，退群重新加入即可。群规:* 禁止传播谣言/盗版* 禁止撕逼/谩骂/人身攻击/血腥/暴力* 禁止讨论免流/黄赌毒/宗教/政治/键政* 禁止广告/推广/黑产/灰产/暗网/刷屏/色情/开车/NSFW👥Telegram 20万人群 @tgcnx👥Telegram 中文群2  @tgzhcn📢Telegram 中文频道 @tgcnz
 
 ### 有道政经
@@ -7886,7 +7886,7 @@
   定期开放  希望可以收集到更多的高颜值美少女群规定:1.禁止低颜值图或视频2.禁止血腥暴力3.禁止幼,兽 等重口内容4.禁止政治类内容5.等待添加颜值  身材  拍摄手法  缺一怎能称得上精品呢主频道 - - https://t.me/tastegirl  欢迎投稿
 
 ### 動漫遊戲Cosplay群組
-- 链接: https://t.me/cosplaysharegroup - 6966 位成员
+- 链接: https://t.me/cosplaysharegroup - 6980 位成员
   頻道：https://t.me/cosplayshare本群規矩：歡迎加入本群組討論cosplay,遊戲,動漫甚至生活的事希望各地區的人能好好相處如想發送照片,貼圖等信息，需發送最少五條文字信息解鎖。❌因為政治問題吵架（直接踢，不警告）❌色情(🔞,NSFW)✅和諧 有善 包容✅有善討論政治是允許的三次警告直接踢出群組誤封 解禁言請聯繫管理員聯繫群組管理員 Contact admin @eric_is_here
 
 ### MIR4传奇交流群
@@ -8086,11 +8086,11 @@
   翻版薩爾達傳說
 
 ### 黄油聚集地 | NSFW | Galgame | ADV | SLG | ACT | RPG | AVG | QSP | 3D
-- 链接: https://t.me/acg_nsfw - 114357 位成员
+- 链接: https://t.me/acg_nsfw - 114502 位成员
   群组仅为了开启频道的讨论区，擅自进群的话会被关进镜子里，一天后才能出来哦。
 
 ### 少女映画
-- 链接: https://t.me/shoujyo - 1066 位成员
+- 链接: https://t.me/shoujyo - 1070 位成员
   阅读前请注意！此合集仅为个人爱好收藏制作，支持正版，切勿用于盈利。
 
 ### Ai美女集中地 I AI繪畫
@@ -8098,7 +8098,7 @@
   看Ai美女的頻道，請放心 #Sfw每日更新圖片皆為網絡搜集
 
 ### 🔞搵SP / SL / SM /FWB /BF /GF 👅🔞SEX頻道
-- 链接: https://t.me/alspOpen - 55776 位成员
+- 链接: https://t.me/alspOpen - 55771 位成员
   呢個係全港成功率最高最大嘅SP Channel👍🏻📰 曾榮獲蘋果日報採訪報導可以招SP /SL /SM /FWB /BF/GF#免費 幫助他人公開招募 內容完全保密😗 如有機構想合作或者係落廣告可以pm@winglok123🙎‍♀️女士們出鋪請聯絡@winglok123🤵‍♂️男士們出鋪請聯絡@assistantextfung@@Assistantyoyo@AssistantRubbish只需要聯絡其中一位
 
 ### Jdaily精選頻道 (Channel)
@@ -8158,7 +8158,7 @@
   本群用于给大米星球用户更直接方便反馈问题，禁止广告，发广告一律封禁
 
 ### 老爹汉化组
-- 链接: https://t.me/ldlocalization - 18687 位成员
+- 链接: https://t.me/ldlocalization - 18688 位成员
   主要汉化游戏的摸鱼组私聊汉化组管理员 @ldlocalization_bot
 
 ### 灵车漂移
@@ -8182,7 +8182,7 @@
   一定要按照群中的说明检查一下电报的敏感设置，否则看不到内容。
 
 ### 🚨 📟 时间—查档/信息查询/人肉/社工库/社工库机器人
-- 链接: https://t.me/shegongkuchaxun - 11905 位成员
+- 链接: https://t.me/shegongkuchaxun - 12320 位成员
   开房记录，手机号定位，全家户口，外卖地址，名下手机号，出入境记录，微信好友提取最全带手机号版本等等等业务，欢迎来咨询群主:@KFC27 @KFC26双向无法私聊请私聊秘书： @KFC27bot时间的频道：https://t.me/shijian666https://t.me/shijian888主动私聊你的都是骗子，交易认准群主
 
 ### 学习强国 [学习小熊] PC端桌面浏览器扩展
@@ -8214,7 +8214,7 @@
   图书馆的新闻和公告🌐 官方英文频道: t.me/zlibrary_official交流频道：t.me/zlib_china_chat
 
 ### Genshin🇨🇳 原神·中国
-- 链接: https://t.me/GenshinCN - 7770 位成员
+- 链接: https://t.me/GenshinCN - 7779 位成员
   本频道 @GenshinCN 主要分享原神相关资讯，日常，色图，美图，爆料，新闻，公告，攻略等机场广告： @tntv2yyds频道主联系/赞助方式： @BlueSkyXN_PM_bot欢迎投稿，留言，意见，建议，反馈，咨询About/ENG: https://t.me/GenshinCN/7310友链 @blueskyxnblog @mihoyoshit @GenshinImpact@YuanShen@GenshinFineCollect
 
 ### 電報狗：TG精选收录
@@ -8234,7 +8234,7 @@
   官网注册:https://猫猫云.com售后: @maomaoadmin
 
 ### SakuraCat用户交流群
-- 链接: https://t.me/SakuraCatHome - 6568 位成员
+- 链接: https://t.me/SakuraCatHome - 6581 位成员
   咱们的官网https://sakuracat.link/通知频道https://t.me/SakuraCatChannelTos:禁止建政内容、色情内容一经发现移除群组，严重者封禁账号
 
 ### 冲浪猫官方群组
@@ -8290,7 +8290,7 @@
   ?关于地表最强人形飞机杯肉便器母狗骚妻小鲸鱼的所有作品展示都在这里⛳️，你想要的撸点小鲸鱼都有，各位粉丝请置顶该群，方便接收新的消息提示?
 
 ### 98堂[原色花堂]
-- 链接: https://t.me/sehuatang - 11072 位成员
+- 链接: https://t.me/sehuatang - 11078 位成员
   色花堂群组：https://t.me/joinchat/AAAAAElbmXreFRG4fAdSIQ声明：本频道及群组创建者不出售邀请码，需邀请码请入群找群友购买，购买需谨慎。
 
 ### SpPlan - 色批计划!
@@ -8350,7 +8350,7 @@
   官网：www.cycity.pro
 
 ### 兴趣使然中转站『主频道』
-- 链接: https://t.me/galgameyesHCG - 3894 位成员
+- 链接: https://t.me/galgameyesHCG - 3898 位成员
   “全球首家”『全网最大』的中文galgame hs鉴赏频道上线啦(•̀ᴗ•́)و 淫书馆 现有“藏书” 700余部 系列500余个 视频万余个 总时长数千余小时无广告在线体验，被窝鉴赏再也不怕“c过头”了，避免自己尴尬，有进度条的hs鉴赏 真香！本频道是以日本美少女游戏 galgame 色图 视频 为主要内容的频道
 
 ### F0⃣0⃣8⃣5⃣2⃣睇圖頻道（每日更新）
@@ -8366,7 +8366,7 @@
   每日更新-最新消息发布，求片发布
 
 ### 网红主播探花福利
-- 链接: https://t.me/QQzeng - 10444 位成员
+- 链接: https://t.me/QQzeng - 10449 位成员
   本群资源禁止转发，不要拿视频骚扰主播和网红，不要发国内网站微信qq，后果自负！国内传播是犯法的，切记 ！！！ 谢谢支持💋进会员群点击私信  https://t.me/S222616
 
 ### 套图天堂/秀人系列/黑丝白丝肉丝/美腿/美足/写真/高清下载/日更
@@ -8394,7 +8394,7 @@
   高速稳定大流量机场，流媒体解锁稳定。官网：https://八方云.com/
 
 ### V指北🐎 | 马儿快快跑
-- 链接: https://t.me/Vzhibei - 31162 位成员
+- 链接: https://t.me/Vzhibei - 31160 位成员
   你的网络Virtual身份，今天就由我来指北！真正的V是不需要赛博皮囊的，做最真实的自己才能活的潇洒；但是有的人嘴无遮拦又畏畏缩缩，这时候就需要揭开神必面纱，带领大家一起指北，，，评论区/交流群@liyi3cg附属频道@LiDeGuang@LuoWenJie2007你对纸片人的所有美好幻想都不要期待在Vtuber身上得到复现V指北自助吃瓜/双向bot @Vzhibei_bot助推:https://t.me/Vzhibei?boost
 
 ### ?????? ? 中之人
@@ -8402,11 +8402,11 @@
   VTuber前世（中之人）收集频道持續更新中···歡迎投稿討論群: @VR010[⚠️: 入群須要回答驗證問題]投稿機器人: @Vtuber_doxxing_bot [➕: 同可直接在討論群內發佈研究]本頻中之人信息與照片在公開前會求證其真實性，有爭議會進行備注，如發現有誤可在評論區提出关键词：塔照 塔频 塔頻 塔樓 塔楼 中之人 中の人 中之人照片 中之人塔照 虚拟主播 虛擬主播 vtb vtuber vup VTuberの前世
 
 ### 社工库机器人群
-- 链接: https://t.me/sgkmain - 118684 位成员
+- 链接: https://t.me/sgkmain - 118557 位成员
   请充值用户进VIP群使用机器人，充值请联系代购  @SGKMainDGBOT 客服    @sgkmainkf1 @sgkmainkf2
 
 ### 社工库机器人交流群
-- 链接: https://t.me/sgk123 - 4982 位成员
+- 链接: https://t.me/sgk123 - 4953 位成员
   社工库 机器人                      @sgk123bot                                             使用说明 https://telegra.ph/SGK2020-06-09                                                     微信 支付宝 充值路口 https://paxful.com/zh/buy-bitcoin/wechat-pay
 
 ### XSUS | 十八线小机场
@@ -8414,7 +8414,7 @@
   XSUS机场交流群机场官网：https://xsus.wiki公告板：https://t.me/xsusgg
 
 ### 免费|全网社工库|机器人|开盒|分享|反差
-- 链接: https://t.me/sgkmffz - 75270 位成员
+- 链接: https://t.me/sgkmffz - 83005 位成员
   投广、合作👉 @TikiTuT_bot中文搜索 https://t.me/csoso社工库，《自古以来》都是tg特色。本频道旨在成为各位收录、方便使用社工库的工具，并且将持续维护更新以优化订阅者的使用。免费机器人合集 https://t.me/sgkmffz/5加入频道前请阅读免责声明，订阅频道表示您已知相关内容。关注频道后请与24小时内离开频道。
 
 ### 狐不妖的后宫
@@ -8486,7 +8486,7 @@
   www.efcloud.bio  easy & fast . 🐾永久地址: efcloud.pages.dev交流群组: @efcloud_group
 
 ### iCosplay-角色扮演
-- 链接: https://t.me/icosplay - 88796 位成员
+- 链接: https://t.me/icosplay - 88786 位成员
   全网最顶的Cosplay分享。The best Cosplay share。
 
 ### 快報
@@ -8522,11 +8522,11 @@
   點這裡把電報設置為中文： https://t.me/setlanguage/taiwan 小明廣播：https://t.me/djhxiaomingbroadcast小明群機器人教學：https://www.shorturl.at/crCDU群規： https://docs.google.com/document/d/1cPW9Gd8ZWDw9mm8pB18UDqKcuBVhfzZN78AMGt2jKGk/edit?usp=sharing
 
 ### 阿里云盘资源交流群
-- 链接: https://t.me/AliyundriveShare - 56541 位成员
+- 链接: https://t.me/AliyundriveShare - 56546 位成员
   阿里云盘 资源分享 文件共享 技术交流入群请仔细阅读以下内容https://t.me/shareAliyun00/8①发言受限，解除禁言，举报不良信息请私聊管理员务必写明原因以及账户名②本群禁止公开讨论政治、色情、暴力；避免刷屏、骚扰他人、恶语相向、发布虚假信息、aff及其他拉人头行为。③别短期内下载太多电影，流量异常会被永久限速。④求资源之前先在机器人和频道里面搜一下！！！这里提供一个和谐的交流环境，求资源，分享资源。
 
 ### 星屋大图书馆（txt提取，次元姬，刺猬猫，菠萝包，飞卢分享）有QQ群
-- 链接: https://t.me/xiaoshuonovel - 3395 位成员
+- 链接: https://t.me/xiaoshuonovel - 3401 位成员
   菠萝包、刺猬猫，次元姬，飞卢全网最新小说资源共享内群中转：613894406（内群可众筹，提取txt，每周资源更新；分享图书包含后续更新。日更群日更40+全网新书，每月8r，加群联系群主管理。）交流群：741696229交流一群：493579553交流二群：603300940交流三群：637990513QQ频道链接：https://pd.qq.com/s/elhiwyx22 (免费找书发资源）tg链接：https://t.me/xiaoshuonovel (有搜书机器人,无限制)
 
 ### ? 星链-社工机器人?
@@ -8542,7 +8542,7 @@
   禁止广告、链接、黄色色情、上传软件、APP。
 
 ### 【吃瓜部落】门事件/黑料/新闻
-- 链接: https://t.me/chigua8 - 61314 位成员
+- 链接: https://t.me/chigua8 - 61665 位成员
   群组 @chigua6门事件/吃瓜/黑料/新闻/八卦интересное видеоShare interesting videos재 미 있 는 영상 공유面白いビデオを共有するفيديو مضحك
 
 ### 深圳红袖阁
@@ -8550,7 +8550,7 @@
   本群是深圳狼友闻香嗅蜜的绝佳宝地！只收录各大群组狼友们有口皆碑和通过验证的小姐姐！欢迎进群吹水聊天！交流大厅 https://t.me/HongXiouge闻香报告 https://t.me/HXGreportwall老师验证 https://t.me/HXGverifyteacher
 
 ### Gouyg小说资源交流群
-- 链接: https://t.me/gouygtxt - 1343 位成员
+- 链接: https://t.me/gouygtxt - 1355 位成员
   小说分享群。狗狗小说搜索: https://book.gouyg.com/
 
 ### 阿里云盘资源搜索
@@ -8566,7 +8566,7 @@
   网站：https://www.defidaonews.com/中文推特：https://twitter.com/8BTC_OFFICIAL英文推特：https://twitter.com/btcinchina电报资讯：https://t.me/Mute_8btc电报社区：https://t.me/news_8btc
 
 ### 方舟子
-- 链接: https://t.me/fangshimin - 22216 位成员
+- 链接: https://t.me/fangshimin - 22207 位成员
   只发布方舟子言论。讨论请去“方舟子读者群”：t.me/fangshimin_tg
 
 ### 奇心科技-频道
@@ -8590,11 +8590,11 @@
   欢迎回到天堂TV，这里是您的天堂，此刻仅专属于您本站仅供观影、宣泄、学姿，愿您离开本站的那一刻，回归现实，依然热爱生活，一心向善，勿施于人。TianTang.TV一直都在。
 
 ### V2RAY免费节点订阅共享发布🇨🇳
-- 链接: https://t.me/vvkj11 - 15029 位成员
+- 链接: https://t.me/vvkj11 - 15106 位成员
   群内<误封、禁言>请联系：👉 @v2raydy发送以下关键字命令，自动获取相关内容（订阅、客户端、小火箭、转换、电脑教程、安卓教程、苹果教程、中文）t.me/vvkj11YouTube频道：VV科技『翻墙梯子公益分享，免费节点科学上网』①ssr和ss节点，ios用美区苹果ID账号下载potatso lite客户端Wingy小火箭icetea；Android用影梭ShadowsocksRR大杀器②Vmess节点，苹果用kitsunebi,shadowrocket安卓用bifros
 
 ### 大师兄影视官方频道
-- 链接: https://t.me/dsxys - 49779 位成员
+- 链接: https://t.me/dsxys - 49808 位成员
   官网https://dsxys.pro
 
 ### 推它福利
@@ -8674,7 +8674,7 @@
   免費vpn，科學上網，免費翻牆，各類有趣軟件分享，頻道內總有你想要的內容。#免費vpn #科學上網 #免費翻牆 #影視 #破解軟件 #軟件分享 #app #Android #windows #ios #Mac
 
 ### 冰河圈子🇨🇳频道
-- 链接: https://t.me/binghequanzi - 33525 位成员
+- 链接: https://t.me/binghequanzi - 33573 位成员
   翻墙，关注冰河圈子就够了！群主 @binghe3651年以上稳定机场：https://t.me/binghequanzi/866免费节点长期更新：https://t.me/binghequanzi/506😂运行4年的全平台国外VPN @veepncn，无限流量，5年VIP仅$34，网址：veepn.com
 
 ### 倾城极速 User Group 2023💕
@@ -8686,7 +8686,7 @@
   开云体育官方招商部，请认准马小跳，唯一官方? @kymxt @kaiyunzhaoshang
 
 ### 夸克云盘发布频道
-- 链接: https://t.me/Quark_Share_Channel - 36697 位成员
+- 链接: https://t.me/Quark_Share_Channel - 37536 位成员
   Help for non-Chinese users https://t.me/Quark_Share_Channel/9130关于低价年费会员https://t.me/Quark_Share_Channel/9379发布资源，分享资源，交换资源。收集秒离线的磁力链接和永久分享的分享链接。
 
 ### 科技分享
@@ -8694,7 +8694,7 @@
   分享翻墙方法、电脑软件技巧等，欢迎大家加入。请勿违法！群主电报 @tiantian01
 
 ### ASMR_ONE 频道
-- 链接: https://t.me/asmr_one_chan - 32315 位成员
+- 链接: https://t.me/asmr_one_chan - 32460 位成员
   本频道用于记录 ASMR Online 相关变更先关注本频道再加群 ，以免遗落重要通知群：https://t.me/+e4IkSChyOsc3MjY1
 
 ### U码头-搬U赚钱-谨防假冒
@@ -8702,7 +8702,7 @@
   1、U码头8.0—9.3以上高价收U，telegram体量最大的承兑商2、资金结算方式：取现、代还网贷、撸黄金手机、线下Apple拿手机3、u码头下载地址：https://down.keeaj.org/downpage/8e98ea21ef6046904、✅请务必码头app下单！有问题群内咨询✅     ❌ 私聊转账转usdt的一定是骗子，请不要相信！！！5、温馨提示：工作人员不会让任何人私聊转账，群内若出现主动添加私聊或者冒充工作人员私发，谨防假冒！！
 
 ### 嗶咔漫畫頻道 - PicACG
-- 链接: https://t.me/PicACG_Channels - 10716 位成员
+- 链接: https://t.me/PicACG_Channels - 10773 位成员
   嗶咔漫畫讓你可以輕鬆看到不同的本子，介面美觀易用，分類齊全，每天更新，紳士必備！嗶咔漫畫官方頻道，由官方及官方授權者營運。請即訂閱本頻道以取得嗶咔的最新資訊（以及各種無聊廢話）。官網：pica2023.com（繁中）電郵：picapicacomic@gmail.com机器人：@Piccomic_bot
 
 ### KinhDown 加速⚡️永无止境⚡️
@@ -8734,7 +8734,7 @@
   T客邦Telegram頻道，為您即時推播最新的科技資訊。https://www.techbang.com
 
 ### 性价比机场 1元100g
-- 链接: https://t.me/xingjiabijichang - 12609 位成员
+- 链接: https://t.me/xingjiabijichang - 12833 位成员
   官网发布页：jichang.gitbook.io官网1：1.性价比机场.com官网2：1.直连机场.com官网3：1.中转机场.com常驻官网(被墙)：性价比机场.com——————————杂货铺：shop.7x24.stream频道：https://t.me/xjbjc机器人：https://t.me/xingjiabi_bot内部群：https://t.me/+K4R7_ueIC99mMjM1 (需绑机器人)
 
 ### ByWave| 这里没有客服！
@@ -8782,15 +8782,15 @@
   Youtube：https://www.youtube.com/channel/UCWHxT_c75DPfsOFJJfn2eTw?sub_confirmation=1
 
 ### 原神 · 提瓦特大陆
-- 链接: https://t.me/GenshinImpact - 8228 位成员
+- 链接: https://t.me/GenshinImpact - 8219 位成员
   向着星辰与深渊，欢迎来到冒险家协会！公告与活动信息: @YuanShen请认真阅读并遵守群规：https://t.me/GenshinImpact/3611631契约既成，食言者当受食岩之罚。友链: @HonkaiImpact3@HonkaiStarRail_CN@ZenlessCN
 
 ### 一分机场
-- 链接: https://t.me/yifenjichang - 9140 位成员
+- 链接: https://t.me/yifenjichang - 9194 位成员
   💖一分机场🎉1元/月 每月流量100G🎉3元/月 每月流量1000G🎉6元/月 每月流量5000G🔮5元 不限时套餐 100G流量👬邀请新用户享70%返利！佣金满满500元可提现150元（3折提现）官网 https://一分机场.com群组 https://t.me/yifenjichang频道 @yifenjichangpindao⚠️本群禁止讨论 涉政 涉毒 涉赌 轮子 黄色相关的内容！⚠️禁止ID广告，文字广告，广告链接等形式传话筒: @yifenjc_bot
 
 ### 三分机场通知频道
-- 链接: https://t.me/sanfenjichang - 28665 位成员
+- 链接: https://t.me/sanfenjichang - 28714 位成员
   三分机场官网 https://shop.sanfen.co频道 https://t.me/sanfenjichang群聊 https://t.me/sanfenjichanggroupapple id小店：https://xckj.xyz故障 工单会在17-18:00左右（utc+8）开始处理
 
 ### 萌享电报本部
@@ -8802,7 +8802,7 @@
   付费稳定机场订阅，中国大陆长期可用更多内容请访问 https://clashsub.com
 
 ### 街拍抄底总群
-- 链接: https://t.me/jiepaicd - 5650 位成员
+- 链接: https://t.me/jiepaicd - 5647 位成员
   史诗价格，尽享CD盛宴！
 
 ### 书墨资源
@@ -8858,7 +8858,7 @@
   破解游戏
 
 ### 黄油中心
-- 链接: https://t.me/LPS99 - 128638 位成员
+- 链接: https://t.me/LPS99 - 128659 位成员
   免费黄油频道（老婆社）喜欢频道的可以分享给朋友哦～🎮黄游频道 @lps99❤️下载频道 @lps999🔞黄油聊天群 @laopoLT
 
 ### H365 - 官方Telegram频道
@@ -8990,7 +8990,7 @@
   本群是专业走资群。谈论政治、色情一律禁言7天。联系群主王小二 @erbiaoge     本群永久链接：https://t.me/+Vfd5p3CJEcPwafnb外汇交流群：https://t.me/+LtzmDQZo8Eg4MmVl外汇交易频道：https://t.me/lhyy2022
 
 ### Korean BJ Dance 韩舞 ( 严禁色情图片/视频/政治话题 _ Prohibition of sending pornographic videos )
-- 链接: https://t.me/MaLeeKbj - 7996 位成员
+- 链接: https://t.me/MaLeeKbj - 8007 位成员
   KBJ 每日更新预览请搜索 👉 更新日期 [ 专 业 韩 舞 - 录 制 剪 辑 专 精 频 道 ][ 绝 无 搬 运 - 保 证 全 部 原 创 资 源 ][ 每 日 更 新 - 今 日 舞 蹈 明 日 上 传 ][ 超 清 视 频 - 既 有 数 量 又 有 质 量 ]
 
 ### 免费查看楼凤联系方式-我要找妹子
@@ -9082,7 +9082,7 @@
   萌の领域是一个和谐有爱的ACG文化交流圈，这里是众多二次元文化爱好者的集结地。 传送门：https://www.moezone.net通知频道：https://t.me/imoe_notice
 
 ### 猫梦交流群
-- 链接: https://t.me/maomeng_cf - 3386 位成员
+- 链接: https://t.me/maomeng_cf - 3388 位成员
   官网:https://maomeng.top反馈:@fqcat_bot
 
 ### 萌喵加速-Nirvana
@@ -9130,7 +9130,7 @@
   #注册免费试用3天https://xbsj5693.xyz#不限设备·同时在线支持iOS、Android、Windows、Mac、Linux、梅林/OpenWRT#专线机场·无惧封锁海外落地企业，便捷而强大的加密协议：Trojan、V2Ray、SSR，秒开YouTube、Ins…#解锁流媒体奈飞/Netflix、Hulu、HBO、动画疯、Apple TV...频道链接: https://t.me/westworldss联系我们: info@westworldss.com
 
 ### PikPak 官方交流群
-- 链接: https://t.me/pikpak_userservice - 46069 位成员
+- 链接: https://t.me/pikpak_userservice - 46072 位成员
   PikPak 各平台客户端汇总：https://t.me/pikpak_userservice/52857官网购买会员：https://mypikpak.com/drive/payment反馈问题，请私信或At@PikPak_Official
 
 ### 邀请码
@@ -9374,7 +9374,7 @@
   “习近平，下台！”“共产党，下台！”群链接：https://t.me/SpeedUpCN🈲地域攻击 🈲人身攻击 🈲露点恶心 🈲无端血腥🈲私仇开盒限包令：表情包不得连续＞3张 限制推广：频繁推广其他群组链接将视情况给予处罚除广告，色情或恶心图外，踢出群员需2名或以上管理联署，或由一尊亲自直接踢出🐸互喷群： @buyaozaidale封禁申诉： @GFW_appeal电报频道：https://t.me/XueXi_China
 
 ### 欧易OKX官方中文群
-- 链接: https://t.me/OKXGroup_CN - 197591 位成员
+- 链接: https://t.me/OKXGroup_CN - 197302 位成员
   欢迎加入欧易OKX官方中文群！认准本群为唯一官方指定中文社群，标有置换、生息、增量、挖矿、闪换、智能合约群等都是诈骗群，管理员不会主动私信任何用户，请大家提高警惕，切勿上当受骗！欧易OKX注册链接：https://www.okx.com/join/ACE505337Discord中文社区： https://discord.gg/hkCGKbbbqf欧易OKX公告频道：https://t.me/OKX_chinese聚合链接树： https://linktr.ee/okxchinese
 
 ### biteb频道
@@ -9414,11 +9414,11 @@
   Fastlink官网: https://fastlink.so#机场 #梯子 #翻墙 #网页加速Anycast全球加速技术节点速度高达2Gbps秒开4k、支持8KIPLC，中转因有尽有，高峰期稳定体验宛如身在海外提供香/日/韩/台/新/美/俄/加/德/奥/英/法/荷/印等多国节点全V2ray节点，高速稳定不怕墙流媒体解锁，支持网飞------------------------多种套餐可供选择现在注册即可白嫖月付体验套餐年付享八折优惠半年付九折优惠
 
 ### 岛主
-- 链接: https://t.me/Uallen_Qbit - 13 位成员
+- 链接: https://t.me/Uallen_Qbit - 25 位成员
   岛主
 
 ### 🔥🔥 免费社工库机器人查询 社工库机器人 社工库 查档
-- 链接: https://t.me/freeshegongku - 110448 位成员
+- 链接: https://t.me/freeshegongku - 110616 位成员
   群主仅一人 @Mario6615 擦亮眼睛！任何商家，以及群主，不会主动私聊你！公告频道： @kongkesgk群反诈频道 @jubaoshabi机器人 @freeshegongku_bot主动私聊均是诈骗！
 
 ### SE-索引公告板
@@ -9474,7 +9474,7 @@
   户籍、机主、开房、快递外卖地址、TG/QQ群关系、账号密码、QQ/贴吧/微博/LOL/Facebook/手机查绑、QQ/手机真名、同名联系方式、同邮服、QQ/手机朋友圈、姓名(拼音)查身份证号等
 
 ### 秘密研究所
-- 链接: https://t.me/mimiyanjiusuo - 6868 位成员
+- 链接: https://t.me/mimiyanjiusuo - 6850 位成员
   秘密研究所官方發布頻道一個好用好看好玩的福利導航網站最新地址  https://yanjiusuo.tv官方推特  https://twitter.com/mimiyanjiusuo
 
 ### 微密圈 抖音极品博主
@@ -9538,7 +9538,7 @@
   收录100,000+中文群组和频道，网罗万千资讯，有求必应！==只有想不到，没有搜不到==关键词竞价广告和置顶广告火爆销售中，本群成员购买有特别优惠！招商客服：t.me/Tbingkefu--@catindexbot搜索机器人--
 
 ### 马栏山汉化组
-- 链接: https://t.me/MLSHHZ - 53304 位成员
+- 链接: https://t.me/MLSHHZ - 53376 位成员
   用爱发电的鸽子窝
 
 ### 币印矿池中文交流群
@@ -9562,7 +9562,7 @@
   书籍发布
 
 ### Onion世界
-- 链接: https://t.me/joinchat/JdOmmxzyyOKjeNh66UvZkQ - 5267 位成员
+- 链接: https://t.me/joinchat/JdOmmxzyyOKjeNh66UvZkQ - 5236 位成员
   暗网教程：https://ssrshare.github.io/  YouTube视频教程地址：https://www.youtube.com/channel/UCsK-77GirO3K9IOoaBQlA0w
 
 ### 迪拜华人顶尖话术馆
@@ -9582,7 +9582,7 @@
   官网:       https://www11.henet.uk机器人：https://t.me/helium_network_bot通知频道：https://t.me/helium_official转换平台：https://sub.ozc.me/  软件下载 ：https://soft.ozc.me
 
 ### PikPak磁链资源分享
-- 链接: https://t.me/PikPak_Share_Channel - 11476 位成员
+- 链接: https://t.me/PikPak_Share_Channel - 11817 位成员
   和谐、友爱的磁链分享交流频道，每个人在这里都可以分享自己想分享的资源。投稿： @PikPak_Share_Group_bot
 
 ### 端傳媒 Initium Media
@@ -9610,7 +9610,7 @@
   让你的网络无界限?地址導航：https://address.besnow.xyz官方網站：https://besnow.org （開代理訪問）大陸地址：https://besnow.me https://besnow.us官方群組：https://t.me/Besnow_L  公告頻道：https://t.me/Besnow_Cloud  官方推特：https://twitter.com/Besnow_Liu官方客服：https://t.me/BesnowBot
 
 ### 奶瓶机场
-- 链接: https://t.me/ciyyr - 79 位成员
+- 链接: https://t.me/ciyyr - 80 位成员
   🔥🔥🔥超稳定SSR/trojan机场✈️推荐🔥🔥🔥：https://2021_invite.eleven.observer/auth/register.html?code=8888注册送1G试用‼️邀请码：0专属八折优惠码：np上车吧🚀🚀🚀
 
 ### 特攻‼️神風爆破団?【魂燃】
@@ -9618,7 +9618,7 @@
   爆破
 
 ### 多伦多方脸键政&非走线润群
-- 链接: https://t.me/+X3WjedrKfxUwYTk1 - 17093 位成员
+- 链接: https://t.me/+X3WjedrKfxUwYTk1 - 17128 位成员
   本群是由多伦多方脸建立的讨论群，内容包括但不限于润学，键政，讨论某高学历领导人，尊王讨奸，理性爱国。尽量不要搬运各种逆天言论，本群禁黄！本群尽量容纳各种非极端政见和非极端政治派别的观点，但不欢迎川粉、粉红和极端支黑。暴力色情、辱骂群友、刷屏的，根据情节严重程度进行禁言和踢出群处理。宣扬偷渡、incel、种族主义、恐怖主义、纳粹主义、散布仇恨言论、武统台湾等情节的，从重处理。晶哥直接ban。方脸油管https://www.youtube.com/channel/UCzYYzigb1vXR0
 
 ### IT人士润欧群
@@ -9626,7 +9626,7 @@
   群规：1 本群不走线不偷渡，聊如何走线偷渡者踢2 私聊默认王晶，截图发群里由管理员踢3 发广告血腥暴力媒体者踢4 不搞性别战争5 不太提倡建政6 不泄露不打听他人隐私7 魔怔支黑或者其他魔怔人会被禁言 踢8 聊工资标明货币。美刀 加币 澳币 人民币 还是欧元
 
 ### 哔哩漫游
-- 链接: https://t.me/biliroaming_chat - 12816 位成员
+- 链接: https://t.me/biliroaming_chat - 12861 位成员
   SFWAFFMAN禁止禁止私聊群管禁止键政严禁SGK服务器在漫游点获取公共服务器，群里问的直接禁言
 
 ### 数字牧民LC官方交流群
@@ -9778,7 +9778,7 @@
   秘密花园 新群：㊙️@ske7se邀请你进入我的：秘密花园为老司机指引回家的路防止封群信息推送 @makeboluobot
 
 ### Reading 读书会
-- 链接: https://t.me/ReadingGroup - 800 位成员
+- 链接: https://t.me/ReadingGroup - 799 位成员
   这是一个小说相关的群组，现在不仅仅是小说的群组了。不讨论纯颜色的小说；本群期待也鼓励群友推荐书籍或读后感投稿，毕竟符合大家胃口的书籍并不多，多聊聊自己对书籍的感受。群组链接： t.me/ReadingGroup推书频道用来推送网络小说的频道，有空还说说怎么做电子书t.me/readingbookgroupTG汉化：Telegram 中文本地化文件分发频道频道链接: https://t.me/zh_CN友链：kindle中亚电子书 https://t.me/zebook
 
 ### 群益報馬仔
@@ -9862,7 +9862,7 @@
   💁🏻‍♂本谷可招PTBF請附上身高度特質和擅長愛好等資料PTBF交流分享: @ptbfshare
 
 ### 色迷聚合官方交流群
-- 链接: https://t.me/semijihe - 13701 位成员
+- 链接: https://t.me/semijihe - 13757 位成员
   https://t.me/+u38_FY7VNPpkOTg0   小白就别来了，想做代理赚钱的就进来
 
 ### 强哥售后交流群
@@ -9970,7 +9970,7 @@
   （sirpdboy聊天群唯一群）sirpdboy的OPENWRT俱乐部群。欢迎机友们加入，在这里你可以畅所欲言。只有三种人会被极刑对待：一种是发违规广告的人、一种是攻击群主的人、一种是隐藏规则严重影响他人的人。其它人你就安心的想说什么就说什么吧。群文件要点击群名，然后选择文件即可找到想要的文件了。
 
 ### 白月光 频道
-- 链接: https://t.me/bygpd - 9247 位成员
+- 链接: https://t.me/bygpd - 9300 位成员
   白月光机场官网https://www.bygcloud.comhttps://ss.cn88.net带节奏、广告、发其他机场直接送飞机票骂人禁言，键政引战禁言，多次无脑引战直接送飞机票
 
 ### 股民當家
@@ -11130,7 +11130,7 @@
   小牛官网下载 地址：https://aoxlink.xyz小牛VPN是免费的快速翻墙工具，支持安卓，Windows，iOS ，不限流，无广告讨论群公告：欢迎反馈和建议欢迎讨论娱乐和技术禁止黄赌毒，不谈政治，禁止广告进群朋友请关注本群官方频道 @aoxvpn
 
 ### 魔戒
-- 链接: https://t.me/Lord_Rings - 55157 位成员
+- 链接: https://t.me/Lord_Rings - 55221 位成员
   魔戒官方售后群使用上的问题可以随时联系客服@tianchongplusbot不欢迎 赌毒键政言论
 
 ### 17321客服-小七
@@ -11166,7 +11166,7 @@
   愿山野浓雾都有路灯，风雨飘摇亦可归舟。
 
 ### 艾利浩斯学院内线广播
-- 链接: https://t.me/ailihaosi - 4981 位成员
+- 链接: https://t.me/ailihaosi - 5033 位成员
   艾利浩斯学院内部专线广播//  主站 alhs.xyz  发布页 alhs.live
 
 ### 🦋Lady SPA🦋(尖沙咀）
@@ -11278,7 +11278,7 @@
   频道 @gx8868有任何问题联系  @A_dalaohu 小号 @Guanxi_66其他模仿的都是骗子。
 
 ### 吃瓜/门事件/黑料/新闻/八卦/流出/Hot events/핫 이 슈/горячие события
-- 链接: https://t.me/chigua6 - 44048 位成员
+- 链接: https://t.me/chigua6 - 44035 位成员
   频道资源发布： @chigua8门事件/吃瓜/黑料/新闻/八卦интересное видеоShare interesting videos재 미 있 는 영상 공유面白いビデオを共有するفيديو مضحك
 
 ### 韻味熟女專區🍀30-50歲籟06828
@@ -11310,7 +11310,7 @@
   英文社区: @dstatcc社区的主体永远是成员没有成员的支持也不会有社区
 
 ### 抄底/街拍/偷拍 备用群
-- 链接: https://t.me/cdshouchang3 - 7270 位成员
+- 链接: https://t.me/cdshouchang3 - 7296 位成员
   这个是备用群 大群是这个 @CDshouchang4
 
 ### ACG里世界
@@ -11390,7 +11390,7 @@
   此群是为了不让各位老湿鸡迷路找不到我们而建立万一我们的群被封，我们会在这里通知各位兄弟，分享新群链接?https://t.me/LaoShiJiZuEr
 
 ### 全国老司机修车资源福利社
-- 链接: https://t.me/loufengziyuan - 51632 位成员
+- 链接: https://t.me/loufengziyuan - 52766 位成员
   全国老司机修车交流！北京，上海，深圳，广州，昆明，长沙，郑州，武汉，哈尔滨，福州，温州，合肥，南宁，南昌，贵阳，沈阳，长春，天津，杭州，南京，无锡，苏州，珠海，重庆，成都，厦门，郑州，石家庄，青岛，大连，济南，宁波，西安，太原，三亚，海口等城市。
 
 ### 爆炸头剪辑
@@ -11418,7 +11418,7 @@
   翻墙机场.com国内入口: 翻墙机场.ccAFF请联系: @iloveanglebaby
 
 ### APP喵-阿喵软件资源共享
-- 链接: https://t.me/appmew - 104163 位成员
+- 链接: https://t.me/appmew - 106551 位成员
   分享好用软件，优质资源，网站，极客，教程，网络黑科技收集：windows，android，iphone，macOS平台各种优质，资源，有趣的，网站，网盘，VPN，磁力，TV，种子，音乐，黑科技，影视，AI，下载，工具，电报，频道，网盘，APP，chatGPT，等关注我，喵！电报导航： @smsgou广告合作： @amiaoco网站：https://www.appmiu.com   友情链接：https://t.me/sssoou_resourceTG搜索https://meow.tg
 
 ### 周周看图请打电话67978880
@@ -11466,7 +11466,7 @@
   未及时回复请加q 2316999
 
 ### 吃瓜云
-- 链接: https://t.me/chiguayun_net - 2381 位成员
+- 链接: https://t.me/chiguayun_net - 2380 位成员
   永久官网：https://chiguayun.com备用网站1：https://chiguayun.net备用网站2：https://chiguayun.org官方群组：https://t.me/chiguayun_net官方频道：https://t.me/chiguayun_com新店开业推出优惠活动🧩：邀请新用户可获得50%佣金，仅限站内消费，如要提现需收取40%代付服务费🧩：直连的价格买到中转的线路，更快更稳，极致性价比🧩：主流节点都具备，根据用户的需要还会陆续增加冷门节点
 
 ### 91海外账号 外贸营销
@@ -11502,7 +11502,7 @@
   回复【导航】有你想要的，唯一联系窗口 @xiaolabalife  处理群所有事物！
 
 ### 風傳媒
-- 链接: https://t.me/storm_media - 4859 位成员
+- 链接: https://t.me/storm_media - 4855 位成员
   風傳媒官方頻道 「風傳媒集團」是一間從媒體、優質內容出發的網路科技公司。秉持「忠於真實，看見未來」的理念，由一群來自各個領域，對社會進步發展有熱情的人所組成。期望藉由先進的網路技術、社群的凝聚及擴散，讓多元的意見被包容接納，並開啟更多理性思辨與對話的空間，進而為社會帶來正面的影響。《風傳媒》以宏觀的視野，掌握台灣、國際、兩岸、地方的政經脈動及生活態度，用真實與進步的價值觀，持續耕耘原生新聞、深度報導及多元觀點，為全球華人提供最優質的內容，帶來對生活的美好實踐。-2020.02.20
 
 ### 星河583 Clash✈️商城
@@ -11650,7 +11650,7 @@
   大围水樂源，新女多多  幼幼  服务王👑美少女 ，本店24小时营业，每天更新返工女女广告，如有任何查询或预约请致电54222718 或客服  @gigili668
 
 ### 中国国际机场
-- 链接: https://t.me/CIv2bchat - 13640 位成员
+- 链接: https://t.me/CIv2bchat - 13738 位成员
   底层机场一枚群组内禁止出现任何NSFW/政治/恶俗/广告等引人不适的内容————————————————官网：https://wget.moe频道：https://t.me/CIv2bchannel————————————————如果您被误踢出/禁言 请发送工单
 
 ### 北极光汉化组
@@ -12130,7 +12130,7 @@
   官方站点： https://cangku.moe闲聊群组： https://t.me/joinchat/JNE1eQ1DkN2iZCsnWps3cg欢迎加入绅士仓库在Telegram的公告栏。重大新闻我们会第一时间通知大家٩(๑`^´๑)۶
 
 ### 上海按摩🐲抓龙筋💕异性SPA㊙️
-- 链接: https://t.me/anmo021 - 2785 位成员
+- 链接: https://t.me/anmo021 - 2805 位成员
   上海按摩师和顾客交流社群，主打🐲泰式抓龙筋、🍒前列腺按摩、💋异性SPA等。其他地区请进总群:@anmochat 或者添加机器人:@anmo123bot
 
 ### pua把妹|约炮|脱单|挽回|约会|聊天课程分享
@@ -12138,7 +12138,7 @@
   ?欢迎加入中文索引生态社区致力打造Telegram最大的流量生态平台。官方频道：https://t.me/China1唯一管理员： @TeleTop678Bot
 
 ### 加密货币专家群
-- 链接: https://t.me/chatgptcn - 31150 位成员
+- 链接: https://t.me/chatgptcn - 30763 位成员
   9月11日更新生成图片测试9月10日更新Claude2 测试9月5日更新图片提问9月1日更新谷歌Bard同步作答9月1日更新加速回复电报最大的ChatGPT中文群，AI海量知识辅助，Lora换装，AI脱衣技术咒语分享，想脱谁就脱谁，C++Python,java...algo trading，ccxt加密货币策略
 
 ### 最新免费Ai一键脱衣服机器人导航 @tuoyifubot Undress robot 一键去衣 一键脱衣 Ai脱衣 Ai去衣 脱衣服 bikinioffbot 大湿兄 全裸 换脸
@@ -12202,7 +12202,7 @@
   ClashNode免费节点官方频道
 
 ### NAStool频道
-- 链接: https://t.me/nastool_official - 10975 位成员
+- 链接: https://t.me/nastool_official - 10962 位成员
   https://github.com/NAStool/nas-tools
 
 ### Andehui频道分享
@@ -12506,7 +12506,7 @@
   1，本群为小额一道回U进算公群金额1000-200000叫卡模式2，本群负责人是以下一位 任何资金来往请语音确认3，认准本群发卡客服 所有交易请在本群完成 所有客服管理不会私发卡号  如有被骗一律不认4，入金之前请仔细 阅读规则 以免后期扯皮5，所有业务往请认准以下管理
 
 ### SMS-MAN Chat - 官方群
-- 链接: https://t.me/smsmanchat - 14134 位成员
+- 链接: https://t.me/smsmanchat - 14273 位成员
   Our official website: https://sms-man.comOur channel with free numbers: @smsnamTelegram bot for receiving sms: @Smsbyliknot_bot VK — https://vk.com/smsmanruTwitter — https://twitter.com/smsmantweets
 
 ### leeesovely写真2022最新
@@ -12558,7 +12558,7 @@
   吃瓜   搞笑   吃瓜群众
 
 ### 吃瓜大本营
-- 链接: https://t.me/cgdby - 92969 位成员
+- 链接: https://t.me/cgdby - 90352 位成员
   吃瓜大本营官方网址：cgdby.com 欢迎投稿，有网红明星最新黑料，实时热门事件有奖励哟！吃瓜群：t.me/cgdby0 ，联系飞机：cgdby8
 
 ### 抖音吃土少女9秒吃鸡视频抖音吃土少女的日常9秒视频
@@ -12818,7 +12818,7 @@
   有朋自远方来 不亦乐乎，喜欢看直播，看视频，领资源的朋友请自带，暗号，坐标，年龄，即可优先进群观看哦！
 
 ### 越南暗黑游越南夜生活
-- 链接: https://t.me/vn_dark_travel - 4575 位成员
+- 链接: https://t.me/vn_dark_travel - 4612 位成员
   越南特色暗黑旅游，薄纱KTV，胡志明日本街奧黛店，残废餐，日式Nuru按摩，咖啡OM，辣妹洗头，皇帝洗头..官网：https://www.ljdny.netLine：https://line.me/ti/p/5ggqgXkSRxTelegram：@ljdny
 
 ### 青桔ACG
@@ -13278,7 +13278,7 @@
   【鏢客分析，只聊技術，不講話術】解析BTC走勢，沒有項目推薦，純淨無廣告！不做任何專案推薦，非投資建議！非營銷號，非娛樂主播，只為分析解惑而生，降低止損率，提高容錯率和止盈率！已累計清理6685个不活躍的人！更多資訊：https://linktr.ee/dbk9527
 
 ### 【非官方备份】黑夜汉化组
-- 链接: https://t.me/+uu-911HZqdhiOWE1 - 8842 位成员
+- 链接: https://t.me/+uu-911HZqdhiOWE1 - 8881 位成员
   2021.8.1 谷歌网盘备份如果有密码可能是 darknight
 
 ### 郑 州
@@ -13406,7 +13406,7 @@
   开发聊天出吹水群.
 
 ### Cham_Upskirt顶级抄底合集预览群timcob、YZWCD、名门夜宴、机场大师、华尔兹cd、TW、视觉控、AK街拍
-- 链接: https://t.me/preview_upskirt - 5239 位成员
+- 链接: https://t.me/preview_upskirt - 5240 位成员
   咨询和下单：https://t.me/cham_upskirt最新唯一推特：https://twitter.com/cham_upskirts
 
 ### 摸鱼云
@@ -13762,7 +13762,7 @@
   鍾建安分析師-唯一官方頻道
 
 ### 日理万姬💕日推榜
-- 链接: https://t.me/riliwanji7777 - 7812 位成员
+- 链接: https://t.me/riliwanji7777 - 8028 位成员
   每日推荐精选福利姬转发本频道至3个1000以上大群即可参与抽奖活动，每周日开奖
 
 ### 汇旺公群 @hwgq
@@ -14222,7 +14222,7 @@
   Линк на WarLife
 
 ### ACGBUSTER
-- 链接: https://t.me/acgbuster - 4133 位成员
+- 链接: https://t.me/acgbuster - 4152 位成员
   此为ACGBUSTER官方TG群中文语言包【加入根据提示安装】:https://t.me/setlanguage/jiantizi重啓ACG計畫https://www.patreon.com/acgwebsite
 
 ### Оперативные сводки
@@ -14242,7 +14242,7 @@
   需要设置你的电报 看里面教程. 设置好了就可以看色色的黄片啦. 么么么么么哒?
 
 ### Starry_ASMR-CN
-- 链接: https://t.me/cn_asmr - 45914 位成员
+- 链接: https://t.me/cn_asmr - 45935 位成员
   Youtube高质量频道推荐使用tag搜索，比如 #日南 或者 #日南 + #掏耳 这样组合型搜索ASMR音声频道，专发音声助眠内容。
 
 ### RattleTrap 1776 ??
@@ -14262,8 +14262,8 @@
   本频道仅做文件存放【详细说明请至 @merlinclashcat 】
 
 ### CZZY
-- 链接: https://t.me/+jY1P9DyaMNozN2M1 - 6756 位成员
-  最新域名：WWW.CZ01.TV
+- 链接: https://t.me/+jY1P9DyaMNozN2M1 - 6773 位成员
+  最新域名：WWW.CZZY33.COM
 
 ### BikiniOff News
 - 链接: https://t.me/BikiniOff - 136269 位成员
@@ -14302,7 +14302,7 @@
   В группе публикуем ключи для Windows 11 10/8.1/7/MS Office 2021 /2019 /2016 /2013 /2010✌️
 
 ### 1IVEDIG
-- 链接: https://t.me/yt1IVEDIG - 16421 位成员
+- 链接: https://t.me/yt1IVEDIG - 16478 位成员
   https://t.me/more1ivedig为什么选择1IVEDIG的服务？1. 去字原画原创的精剪2. 音画剪辑至同步3. 没收费群不跑路支付宝扫码, 支付宝红包, Paypal, AlipayHK supported.
 
 ### Kevin_thecurly upload
@@ -14354,7 +14354,7 @@
   固件下载与定制: https://openwrt.ai通知发布频道: https://t.me/opwrt后台地址 op/ 或 10.0.0.1  密码 root消息前加@ai ,可向chatgpt提问.为了自身安全, 本群禁止讨论政治, 群友言论皆与群主无关.
 
 ### Sub & WebHD
-- 链接: https://t.me/+wNZD6i-nGH02NjZl - 8341 位成员
+- 链接: https://t.me/+wNZD6i-nGH02NjZl - 8349 位成员
   版权字幕登录下载，发其他网站地址一律拉黑不解释
 
 ### ✨ St Garden✨
@@ -14434,7 +14434,7 @@
   QAuxiliary 频道CI 构建发布频道 @QAuxiliary_CI群组 https://t.me/+KyMD8cherUdmOTFlGitHub https://github.com/cinit/QAuxiliary发布评论消息前请先加入群组，否则发布的评论消息将会被自动删除，您也会被临时禁言。#版本发布 #频道通知 #使用指南
 
 ### FreeMdict.com
-- 链接: https://t.me/freemdict - 2827 位成员
+- 链接: https://t.me/freemdict - 2832 位成员
   禁止黄色~No porn
 
 ### AstasiaDream ?♡? Astasiangel
@@ -15674,7 +15674,7 @@
   Team Bliss, the creators of Bliss OS and Android-Generic Project, brings you Android for x86 Desktops, Laptops & PCsWebsite: blissos.org / android-generic.github.io Documentation: docs.blissos.orgMatrix chat:https://matrix.to/#/#blissos:matrix.org
 
 ### 9527🌈
-- 链接: https://t.me/fku0007 - 8112 位成员
+- 链接: https://t.me/fku0007 - 8117 位成员
   山高路远，看世界，也找自己
 
 ### ASB Military News
@@ -15806,7 +15806,7 @@
   休假 麻豆传媒映画『官方商务』收量任何渠道量 CPA/CPS/CPT 最新消息群- https://t.me/+IHn999LdhhFjNGJl
 
 ### 🔥 福利|影视|教程|🔥百度网盘|115|阿里云盘
-- 链接: https://t.me/moviebyg - 13449 位成员
+- 链接: https://t.me/moviebyg - 13424 位成员
   🎉每天更新新剧频道标签：#福利—你们懂的🚗#影视—电影、剧集、动漫、综艺🌏#教程—各种教学资源⭐统一分享方式：主要以百度网盘、115为主，迅雷网盘、阿里云为辐，其他如天翼网盘、文叔叔等只上特别好的资源。
 
 ### 秋实云半公益机场?注册后坚持签到就可无限白嫖
@@ -16118,7 +16118,7 @@
   蓬莱仙岛年付仅需10块 月付仅需一块机场地址：https://peland.xyz
 
 ### 越神 全越南 暗黑旅遊 公佈欄
-- 链接: https://t.me/TaiwanVietnam343434 - 21758 位成员
+- 链接: https://t.me/TaiwanVietnam343434 - 21882 位成员
   越神越南暗黑旅遊 相關問題說明https://t.me/addlist/vyvnsMNrLAJkZTk1越神北越群https://t.me/TaiwanVietnam3434越神中越群http://t.me/TaiwanVietnam34越神南越群http://t.me/TaiwanVietnam34343434越神成人視頻群https://t.me/TaiwanVietnam3434343434越神-越南旅遊網站 https://taiwanvietnam.weebly.com/
 
 ### 香奈兒茶坊新手頻道
@@ -16154,7 +16154,7 @@
   NULL
 
 ### Telegram-zh_CN 简体中文语言包
-- 链接: https://t.me/zh_CN - 692243 位成员
+- 链接: https://t.me/zh_CN - 692576 位成员
   NULL
 
 ### 社工库机器人
@@ -16162,7 +16162,7 @@
   NULL
 
 ### 一元机场
-- 链接: https://t.me/yyjc_group - 93874 位成员
+- 链接: https://t.me/yyjc_group - 93996 位成员
   NULL
 
 ### 频道大全 - TG上的Hao123
@@ -16270,7 +16270,7 @@
   NULL
 
 ### Telegram 中文频道
-- 链接: https://t.me/yinxiangbiji_news - 22758 位成员
+- 链接: https://t.me/yinxiangbiji_news - 22795 位成员
   NULL
 
 ### EMPRESS - Core Members
@@ -16390,7 +16390,7 @@
   ?没有人?比我?更懂☝○○来自 @GamerNoTitle（此tg开pgm被封了）的各种动态的发布频道，请认准管理 @PaffCreamGithub: https://github.com/GamerNoTitleTwitter: https://twitter.com/GamerNoTitleWebsite: https://bili33.top
 
 ### 4K影视屋(分屋）-蓝光无损电影
-- 链接: https://t.me/dianying4K - 47956 位成员
+- 链接: https://t.me/dianying4K - 48024 位成员
   NULL
 
 ### 电子书频道
@@ -16494,7 +16494,7 @@
   NULL
 
 ### 阿夸广场
-- 链接: https://t.me/fixpds - 3907 位成员
+- 链接: https://t.me/fixpds - 3893 位成员
   NULL
 
 ### Abu的杂货铺
@@ -16678,7 +16678,7 @@
   感谢大家来到这里！请友好交流，讨论请尽量想好再说，请善用引用，合并精简，促成沟通。举例：1 我同意某想法，因为...2 我反对某想法，因为...3 感谢某位群友说的“xxx”，我改变了我原来“yyy”的想法。因为...反问反讽不利交流，请避免。请重视举证，不要陷入阴谋论。期待与大家讨论，欢迎拉人，谢谢大家！关键词：台湾社会 政治 讨论 社群 两岸关系 交流频道合集 @channel_push消息搜索 @msg_index_bot
 
 ### 春都早桜风曼暖
-- 链接: https://t.me/sakurato - 11621 位成员
+- 链接: https://t.me/sakurato - 11634 位成员
   NULL
 
 ### SwarmVPN官方群
@@ -16718,7 +16718,7 @@
   百慕大里的小小布吉岛～记得关注一下下布吉岛小频道哦～小频道 https://t.me/bujidaoChannelv2tg流量bot @CuteIslandCimBotP.S. 等木有墙了，岛主给大家发糖果哟～
 
 ### Anime1.me 更新通知
-- 链接: https://t.me/anime1notify - 6829 位成员
+- 链接: https://t.me/anime1notify - 6836 位成员
   NULL
 
 ### V2POP 讨论群
@@ -16758,7 +16758,7 @@
   欢迎小喇叭回归
 
 ### 永恒之夜 裸舞（快手/抖音/虎牙/斗鱼/微博/网红/花椒/小奶猫/小妲己/韩国bj/尽在永恒之夜）
-- 链接: https://t.me/qq13530 - 38036 位成员
+- 链接: https://t.me/qq13530 - 38136 位成员
   NULL
 
 ### ?
@@ -16774,7 +16774,7 @@
   NULL
 
 ### 套路直播 红绿灯 调教 寸止 第一视角
-- 链接: https://t.me/cuilon - 13776 位成员
+- 链接: https://t.me/cuilon - 13834 位成员
   NULL
 
 ### Xiaomi Brick Club ?
@@ -17186,8 +17186,8 @@
   NULL
 
 ### 🌈FreeOK-追剧也很卷
-- 链接: https://t.me/freeoker - 2537 位成员
-  🌈唯一网址：www.freeok.vip🚀备用域名：www.freeok.pro
+- 链接: https://t.me/freeoker - 2652 位成员
+  🌈 唯一网址 www.freeok.vip🚀 备用域名 www.freeok.pro
 
 ### 黄瓜资源cms站长交流群
 - 链接: https://t.me/huiduziben888/ - 5511 位成员
@@ -17206,7 +17206,7 @@
   NULL
 
 ### 💋風月堂㊙️91原創視頻💋無收費無廣告
-- 链接: https://t.me/fyt91 - 27849 位成员
+- 链接: https://t.me/fyt91 - 30020 位成员
   NULL
 
 ### Updov
@@ -17318,7 +17318,7 @@
   无
 
 ### FreeOK-追剧也很卷
-- 链接: https://t.me/freeokvip - 1127 位成员
+- 链接: https://t.me/freeokvip - 1163 位成员
   🌈唯一网址：www.freeok.vip
 
 ### Shiba Inu: The Dogecoin Killer
@@ -17394,7 +17394,7 @@
   NULL
 
 ### Fndroid的日常
-- 链接: https://t.me/fndroid_news - 22330 位成员
+- 链接: https://t.me/fndroid_news - 22279 位成员
   NULL
 
 ### 客服小吴
@@ -17450,8 +17450,8 @@
   合肥狼友群打造修车资源共享宝地
 
 ### 万城专线
-- 链接: https://t.me/vcitygroup - 951 位成员
-  没有订购服务?来选一个吧：官网:https://portal.vc-on.com/频道:https://t.me/vcitychannel防失联,请收藏永久跳转页: https://vcity2019.github.io本群为发布消息和交流用，无在线客服，如有需求请移步官网实时客服对话框。入群请先了解群规:1. 禁止任何形式的广告和宣传活动2. 禁止任何ZZ内容&NSFW内容&攻击辱骂他人行为，直接小黑屋3. 不建议私下交易，不要轻信私聊信息
+- 链接: https://t.me/vcitygroup - 889 位成员
+  没有订购服务?来选一个吧：官网: https://portail.site-vc.com频道: https://t.me/vcitychannel防失联,请收藏永久跳转页: https://vcity2019.github.io本群无客服，为发布消息和交流用，如有需求请移步官网实时客服对话框。入群请先了解群规:1. 禁止任何形式的广告和宣传活动2. 禁止任何ZZ内容&NSFW内容&攻击辱骂他人行为，直接小黑屋3. 不建议私下交易，不要轻信私聊信息
 
 ### 接码平台-实卡接码-注册-软件-国外api
 - 链接: https://t.me/hao1234MHjm - 3973 位成员
@@ -18510,7 +18510,7 @@
   NULL
 
 ### 澳門特區政府新聞局--政府新聞頻道
-- 链接: https://t.me/macaogcs - 5424 位成员
+- 链接: https://t.me/macaogcs - 5401 位成员
   澳門特區政府新聞局--政府新聞頻道
 
 ### 萤火虫全国高端外围，福利修车！小姐模特约炮学生萝莉丝袜北京上海广州深圳成都杭州重庆武汉西安苏州天津南京长沙郑州东莞青岛沈阳宁波昆明无锡佛山合肥大连福州厦门哈尔滨济南温州南宁长春泉州石家庄贵阳常州南通嘉兴太原徐州南昌金华惠州珠海中山台州烟台兰州绍兴海口扬州大
@@ -18734,7 +18734,7 @@
   3分50歳若返りのメドベットを世界最速で普及させる事を目標としたプロジェクトです！
 
 ### 喵兔动漫社
-- 链接: https://t.me/joinchat/01Vh5YtmOMZhNWQ1 - 1470 位成员
+- 链接: https://t.me/joinchat/01Vh5YtmOMZhNWQ1 - 1468 位成员
   NULL
 
 ### 好孩子特輯（逃犯條例）
@@ -18802,7 +18802,7 @@
   介紹台灣小姐 十年優質茶莊 ?安全可靠 @bj2288 看照選妃 https://t.me/GTO94like 有喜歡的發給我?
 
 ### 微信搬运工
-- 链接: https://t.me/wxbyg - 6733 位成员
+- 链接: https://t.me/wxbyg - 6747 位成员
   微信搬运工的新频道！机器人管理，丰富一下电报上的中文信息。
 
 ### DailyView網路溫度計
@@ -19262,7 +19262,7 @@
   台南大小事，實用資訊，重點消息
 
 ### 98堂(原色花堂)邀请码专卖店
-- 链接: https://t.me/shtt98 - 510 位成员
+- 链接: https://t.me/shtt98 - 519 位成员
   NULL
 
 ### Video Together 一起看视频
@@ -20006,7 +20006,7 @@
   NULL
 
 ### 🌹ℳ๓₯㎕ˆ随缘更新 🇨🇳
-- 链接: https://t.me/SnowDDD - 101525 位成员
+- 链接: https://t.me/SnowDDD - 101542 位成员
   助手购卡：群文件搜索“手游”下载软件https://www.18kz.cn/details/3306C181助手交流群：t.me/+z063Z8inx1MwMWE1
 
 ### 太阳代发破解版TG刷屏王软件功能介绍1
@@ -20142,7 +20142,7 @@
   黄稳畅,老师,黄老师,深圳,新安中学,深圳新安中学 36ls
 
 ### 黑料网155.fun-免费吃瓜-最新回家地址
-- 链接: https://t.me/heiliao1 - 12901 位成员
+- 链接: https://t.me/heiliao1 - 13738 位成员
   NULL
 
 ### 海洋CMS官方交流群
@@ -22074,7 +22074,7 @@
   感谢大家对零龙的支持零龙工作室会给你们带来更好的游戏体验不做圈钱的小人，不欺骗大家
 
 ### 抓龙筋
-- 链接: https://t.me/zhhualongjin - 1675 位成员
+- 链接: https://t.me/zhhualongjin - 1713 位成员
   🐉上海抓龙筋  长沙抓龙筋 深圳抓龙筋 广州抓龙筋 重庆抓龙筋
 
 ### 深圳龙华专业抓龙筋
@@ -22530,7 +22530,7 @@
   于文欣 甘肃省安宁区十里店街道南街花园小区℡15117184430QQ 643951882
 
 ### 哔哩漫游
-- 链接: https://t.me/biliroaming - 34195 位成员
+- 链接: https://t.me/biliroaming - 34241 位成员
   评论需要先进群。不然会被禁言。
 
 ### 天下雜誌
@@ -22570,7 +22570,7 @@
   120斤的小王 免费 下载&保存&更新微密圈 网红 福利全集 点击链接查看咪友电报群主页  t.me/miudianbao
 
 ### TG曝光王官方唯一直播间
-- 链接: https://t.me/bgw_zhibo - 1956 位成员
+- 链接: https://t.me/bgw_zhibo - 1951 位成员
   TG曝光王直播间，教会你如何使用软件拓展海外私域流量。
 
 ### 探囊取物BTC
@@ -24094,7 +24094,7 @@
   千载琉璃の小破频道，发点黄油移植和乐子
 
 ### 顶流社区－资源交流共享论坛
-- 链接: https://t.me/+L4sm3BFb7wA0MTc1 - 2062 位成员
+- 链接: https://t.me/+L4sm3BFb7wA0MTc1 - 2060 位成员
   【顶流社区】管理员： @cnzml @xiaojie007百度搜索：顶流社区论坛官网：www.dingliu7.net社区频道：https://t.me/dingliu5
 
 ### Pionex官方中文群
@@ -25070,7 +25070,7 @@
   NULL
 
 ### 游庭皓的財經皓角
-- 链接: https://t.me/yu_finance - 3087 位成员
+- 链接: https://t.me/yu_finance - 3096 位成员
   分析經濟、投資、生活理財、國際政經與各種商業議題，專門為客戶提供精闢觀點解析，訊息很便宜，觀點很珍貴，讓《財經皓角》顛覆你對世界的想像，用更寬廣的角度帶你一窺投資的奧秘。https://is.gd/o4dYiN《早晨財經速解讀-財經界的空中英語教室》Apple podcast：https://reurl.cc/Zn8ObWSound Cloud：https://reurl.cc/8lYG5ySpotify:：https://reurl.cc/D17vRQ
 
 ### 高端娱乐吃瓜会
@@ -25310,7 +25310,7 @@
   这里是 Dism++ 第六个群（创建于 2022 年 4 月 5 日），用于处理问题反馈以及用户建议。请大家文明发言，以身作死屡教不改者一律踢！DISM++ 社区导航频道：https://t.me/dismplus
 
 ### 私房TV sifangtv
-- 链接: https://t.me/sifangtvv - 685 位成员
+- 链接: https://t.me/sifangtvv - 684 位成员
   NULL
 
 ### 原创 街拍 偷拍 抄底
@@ -25346,8 +25346,8 @@
   本频道是预览频道，完整版需要进入VIP群
 
 ### TG中文群—精选四十万中文群组导航
-- 链接: https://t.me/tgcng_com - 18925 位成员
-  数据展示：当前收录398.92万个群,甄选展示43.83万个中文群。--20231122.收录说明：为了用户体验，主动屏蔽一些群组，特别是矩阵推广群组。特色内容：主动抓取公开群及频道，非用户提交的广告内容，数据量全网第一。官方网站：https://www.tgcng.com商务合作：https://t.me/tgcng_bd导航群组：https://t.me/tgcng_com
+- 链接: https://t.me/tgcng_com - 19385 位成员
+  数据展示：当前收录401.26万个群,甄选展示44.02万个中文群。--20231130.收录说明：为了用户体验，主动屏蔽一些群组，特别是矩阵推广群组。特色内容：主动抓取公开群及频道，非用户提交的广告内容，数据量全网第一。官方网站：https://www.tgcng.com商务合作：https://t.me/tgcng_bd导航群组：https://t.me/tgcng_com
 
 ### ?若楠全球高端外围交流群?
 - 链接: https://t.me/qgww88 - 3202 位成员
@@ -25450,7 +25450,7 @@
   中文的 Telegram 新聞或消息。# 非官方頻道更多資訊 >>Telegram Beta:https://t.me/tgbeta
 
 ### SuperIndex News(超级索引)
-- 链接: https://t.me/chaojisuoyin - 7741 位成员
+- 链接: https://t.me/chaojisuoyin - 7780 位成员
   超级索引官方频道
 
 ### 仙境傳說 愛如初見 (公告群) @Ro16888
@@ -25670,7 +25670,7 @@
   小坤机场  https://kunkun.dev/    偷偷稳定，努力进步
 
 ### ⭕网红圈资源预览群
-- 链接: https://t.me/Weimishe2 - 3688 位成员
+- 链接: https://t.me/Weimishe2 - 3736 位成员
   预览只展示极少部分🔞🔞更多办理会员查看🔥每天更新🔥🔥进群看所有网红🔥🔥可在线看可下载🔥
 
 ### 游戏辅助，游戏外挂
@@ -25914,11 +25914,11 @@
   NULL
 
 ### 基佬中心导航
-- 链接: https://t.me/+Xq4I4v5OuTQ3ODdh - 15626 位成员
+- 链接: https://t.me/+Xq4I4v5OuTQ3ODdh - 16119 位成员
   NULL
 
 ### TTdown☁️
-- 链接: https://t.me/TTdownGroup - 4107 位成员
+- 链接: https://t.me/TTdownGroup - 4109 位成员
   频道: https://t.me/TTDown讨论群: https://t.me/TTdownGroup联系群主:@zhiduomao_bot
 
 ### 紳士漫畫
@@ -26634,7 +26634,7 @@
   一眼就看中的东西，不管你逛再久的街，你还是会转回去买它，就像你一眼心动的人，兜兜转转再遇见，依然会心动。
 
 ### 橄榄社区 绿帽 ntr 汉化
-- 链接: https://t.me/ntrdb - 14109 位成员
+- 链接: https://t.me/ntrdb - 15072 位成员
   橄榄是一种绿色水果，吃起来酸涩，却能回甘，这不正好和NTR一样吗，细评绿色文艺作品，包括不限于电影、漫画、游戏、小说，希望大家喜欢
 
 ### Swag直播预告通知
@@ -26878,7 +26878,7 @@
   http://Gv88.tk 自助下单
 
 ### TaiShanNet交流群
-- 链接: https://t.me/+AFNttosnwsE1NDIx - 2546 位成员
+- 链接: https://t.me/+AFNttosnwsE1NDIx - 2592 位成员
   召推广返利35%，流媒体稳定解锁，全中转+iplc线路。官网：https://www.taishan.pro
 
 ### 动画年鉴频道
@@ -27026,7 +27026,7 @@
   只限招人約食飯睇戲等斯文活動🚨只限招人廣告禁傾計/回覆pm等
 
 ### 郑州倾羽堂交流群
-- 链接: https://t.me/zzqingyutang - 5679 位成员
+- 链接: https://t.me/zzqingyutang - 5774 位成员
   预约联系 https://t.me/guoguoabc客户反馈频道:https://t.me/zzqytchannel
 
 ### 反差 萝莉 福利姬
@@ -27518,7 +27518,7 @@
   🌹尖沙咀酒店🌹🙋🙋🙋美少女預約👇whatsapp    wa.me/85266825097telegram 預約    @hgmixgirls
 
 ### 魔都光明顶教学课程实验室
-- 链接: https://t.me/moduguangming - 33091 位成员
+- 链接: https://t.me/moduguangming - 33052 位成员
   群里问题可以联系管理员：  @losmyanger @dibaihaowan本群狼友内部讨论群：https://t.me/+QINz1zuTRj0yMDk1
 
 ### shuiguopai 水果派解说 解说水果派
@@ -27654,7 +27654,7 @@
   NULL
 
 ### 🚗 老司機百科|美食|健身|萌宠|街拍|旅游|奢侈品
-- 链接: https://t.me/zh_TikTok - 96742 位成员
+- 链接: https://t.me/zh_TikTok - 97114 位成员
   简介：  🚗 老司机百科系华人电报圈知名品牌，旗下社群多达数十个，种类精彩纷呈，专注色友社交。永久免费分享资源，请认准小红车标志。老司机百科官网：http://lsjbk9.com🈴作请联系管理员 @xieeluoli6688    恶意骚扰将永久列入黑名单
 
 ### 有福共享
@@ -27774,7 +27774,7 @@
   Hneko与世界互联   |   官网： hneko.xyz
 
 ### 色色游乐园 免费黄游群🤪
-- 链接: https://t.me/huangyouqun - 142422 位成员
+- 链接: https://t.me/huangyouqun - 142437 位成员
   我们不做黄游，只是黄游的搬运工这里是我们的聊天群https://t.me/afirduodcnk
 
 ### 『NSFW』不良研究所91草榴胴体鉴黄中心
@@ -27898,7 +27898,7 @@
   本站暂不接广告，此为闲聊群。禁止讨论政治类、未成年色情类血腥暴力等话题，群内禁止打广告。
 
 ### 越神 越南 北越（河內 北寧 下龍灣 海防 塗山） 暗黑自由行😍
-- 链接: https://t.me/TaiwanVietnam3434 - 38586 位成员
+- 链接: https://t.me/TaiwanVietnam3434 - 38485 位成员
   1.越神開始安排出團 越南玩樂了自己有找滿3人的 隨時可以出團1-2人的朋友 就配合可以出團的時間https://t.me/addlist/vyvnsMNrLAJkZTk12.群組內容北越-河內-海防-塗山-北寧-下龍灣有8行程8團費說明中越-峴港 有1種團費南越-胡志明 有1種團費3.群裡面各國人都有 禁止 談論政治禁止評論各國的人或女生 越南例外禁止一切的暴力血腥 幼童色情 禁止任何族群的廣告分享 群組轉傳禁止聊任何毒品 賭博 買賣  招人拉人禁止談偷渡相關問題 違規封鎖
 
 ### MaskPark情趣之家
@@ -27934,7 +27934,7 @@
   NULL
 
 ### 多啦A梦
-- 链接: https://t.me/gwbbmks - 2928 位成员
+- 链接: https://t.me/gwbbmks - 3159 位成员
   gw-yundong.net
 
 ### 停班停課最新通知／官方討論區
@@ -28110,7 +28110,7 @@
   白虎是美逼的极致！此生必舔白虎逼。欢迎投稿，请 @luowuxhe
 
 ### 巨量精品
-- 链接: https://t.me/jljpvip - 2670 位成员
+- 链接: https://t.me/jljpvip - 2654 位成员
   巨量精品视频
 
 ### 老王吧论坛-官方讨论群组
@@ -28118,7 +28118,7 @@
   NULL
 
 ### JAV中字
-- 链接: https://t.me/javcc - 113538 位成员
+- 链接: https://t.me/javcc - 113519 位成员
   中文字幕，高清压制
 
 ### TG反差婊演SWAG中心
@@ -28434,7 +28434,7 @@
   LONG（AVE热搜榜永久第一）龙?是古代神话传说中的神兽2024龙年吉祥龙机制：1营销回购1回流总量：10000枚一币嫩模第一目标100U第二目标1000U第三目标10000U龙年春晚目标创越BTC?LONG币将打造完美生态?基于web3.0?集龙NFT卡牌?龙币SWAP生态，作为母币?布局元宇宙，
 
 ### 妖精短视频🔞
-- 链接: https://t.me/yjdsp - 210 位成员
+- 链接: https://t.me/yjdsp - 209 位成员
   NULL
 
 ### 快乐屋
@@ -28462,7 +28462,7 @@
   抖阴官方群唯一商务合作联系人: @moyu668永久官网:https://dy.dyweb.app/备用线路1: https://dy.dyweb.app/备用线路2: https://dy.dyweb.app/
 
 ### 【NSFW】小芯大世界
-- 链接: https://t.me/xhacg - 2677 位成员
+- 链接: https://t.me/xhacg - 2683 位成员
   這裡是小芯的官方聊天群組。官網：acg.la電郵：i@acg.la
 
 ### 科技小飞哥的粉丝群
@@ -28486,7 +28486,7 @@
   📢欢迎加入👏👏深圳【探花】狼友沟通交流群‼️✍🏻探花宗旨：安全第一、探花第二、靠谱最重要‼️✍🏻探花团队致力于打造深圳最齐全、最开放、最靠谱的探花社群‼️📌进群请遵守以下群规：        🈲：未经允许，禁止任何形式的广告、用户名、其他群组链接🔗。        🈲：本群不排斥任何狼友包括是狼友的经济、代聊，但是借分享之名推一些残花败柳，一但发现直接请出。        🈲：各种活动弄虚做假，一经发现直接请出。        🈲：本群诚信为本，凡事有欺骗群
 
 ### 98堂[原色花堂]
-- 链接: https://t.me/joinchat/AAAAAElbmXreFRG4fAdSIQ - 9907 位成员
+- 链接: https://t.me/joinchat/AAAAAElbmXreFRG4fAdSIQ - 9954 位成员
   频道: @sehuatang永久地址：https://www.sehuatang.net群组内输入:最新地址  获取最新地址常用地址  获取常用的永久地址输入 /filters 查看更多命令
 
 ### 爱弹幕ACG交流群
@@ -28522,7 +28522,7 @@
   ❤️下载频道 @Hvnkbfc💿里番频道:t.me/+NCWnB2V5bh1kNmE1🔞聊天群 @abcd13354频道内所有的游戏资源仅供学习交流所用，勿用于商业，录播或诸牟利之途，否则后果自负，上传资源游戏所有权归原作者或团体所有，有侵犯到团体或私人之处，敬请私聊，及时删除相关资源内容，非常感谢你的支持与配合，一切幸运噢❤️
 
 ### danceshow【官方群组】
-- 链接: https://t.me/danceshow_top - 1364 位成员
+- 链接: https://t.me/danceshow_top - 1373 位成员
   NULL
 
 ### [91视频]官方总群
@@ -28750,7 +28750,7 @@
   jboom|牛牛炸了| 福利姬|玩偶姐姐|HONGKONGDOLL|国产|成人|玩具酱|奶油米子|足交|足控|步非烟|闵儿|寸止
 
 ### 黄油仓库
-- 链接: https://t.me/quzimingyue - 126153 位成员
+- 链接: https://t.me/quzimingyue - 126242 位成员
   NULL
 
 ### 我最爱美少女福利姬了
@@ -28866,7 +28866,7 @@
   小柠自录的一些助眠主播的视频，都会免费传进本频道。本频道初衷：希望将一些美好助眠视频保存下来，供后人欣赏。
 
 ### ASMR基佬中心
-- 链接: https://t.me/+s1WgSf8MxnUwZTk1 - 86067 位成员
+- 链接: https://t.me/+s1WgSf8MxnUwZTk1 - 88552 位成员
   ASMR基佬中心 @asmrgayASMR基佬中心群 @asmr_gay2老色批基佬中心 @lsp_gay没有VIP群，请勿上当受骗
 
 ### 嘿嘿嘿
@@ -29466,7 +29466,7 @@
   小米粥OvO 是一位斗鱼主播 目前因考研暂休粉丝群 @xiaomizhou 推送粥粥微博 直播间更新 欢迎粥粉入群交流 有入群问答验证 未通过验证可在频道留言申请加入粥宝 Bot @xiaomizhouOvO_bot 用于直播间开播提醒 关键字回复等直播录像 https://www.youtube.com/channel/UC4Ce2FAOwXZ--t6XEnVL7oA 陆续上传中此频道 @xiaomizhouOvO 暂用于发布粉丝群, Bot, YouTube 频道相关事务
 
 ### CyanNAI | News&New Tech for AI
-- 链接: https://t.me/CyanNAI - 8290 位成员
+- 链接: https://t.me/CyanNAI - 8289 位成员
   频道包含以下内容：- Artificial Intelligence   - StableDiffusion/NovelAI Draw  - LLM 语言模型相关  - Finetune 个人微调  - Try 以及踩坑指南...  - News 前沿新闻站- 偶尔对AI方面健政- 经常不正经偶尔很认真的频道- 近期Cyan较忙，原创内容比例会大幅度降低广告&推广联系 @CyanFalseBotHardCore子频道 @CyanNAIReport
 
 ### 反洗脑’排余毒’看世界
@@ -30166,7 +30166,7 @@
   个人频道
 
 ### ASMR 耳骚 | 好听哒! [CN/EN]
-- 链接: https://t.me/ASMRw - 16518 位成员
+- 链接: https://t.me/ASMRw - 16590 位成员
   [ Language: English / Chinese ]Autonomous Sensory Meridian Response (ASMR)正式译名: 自发性知觉经络反应错误译名: 颅内高潮[ 耳骚 | 同人音声 | 睡觉觉 | 聊天 | 耳语 | 掏耳朵 | 环境 | 自然 | 雨声 | 海浪 | 无人声 ]本群允许 #NSFW 但是必须与这些听的相关也就是说和听的无关的黄色是禁止的附网易云音乐群 → @NetEaseMusic
 
 ### 🛵👅好机车理容院👅🛵
@@ -30406,7 +30406,7 @@
   本群宗旨:【学习日语】并交流和保存R18与nonR18同人音聲同人音声頻道(招募管理): @DoujinVoice 列出大量音声下载网站，欢迎补充！友情群组： @CGbaobaobao @baixiongpaijiajiu友情频道：  @CGSFW群组邀請:https://t.me/joinchat/CB17SUtNscEoV6cBqRNMLA
 
 ### 韵の小院🍃ᴺˢᶠʷ
-- 链接: https://t.me/YunRan1314 - 128962 位成员
+- 链接: https://t.me/YunRan1314 - 129642 位成员
   频道群组 https://t.me/YunRan521
 
 ### 快约成都精品车总群
@@ -30630,7 +30630,7 @@
   美图分享
 
 ### Fansub Nexus
-- 链接: https://t.me/FansubNexus - 1061 位成员
+- 链接: https://t.me/FansubNexus - 1060 位成员
   欢迎来到 Fansub Nexus，这里是字幕制作者和相关人员的讨论区。请使用新版（2023 年以后）的客户端，否则无法看到 topic。群规：https://telegra.ph/Fansub-Nexus-群规-03-18本群组默认禁言，如果有参与讨论的需要，请私聊 @FansubNexusBot，并提供下列任一证明：1. 过去三年内参与过字幕制作（片源/翻/校/轴/后期/压制等都算）。2. 过去一年内放流过 BD 原盘。3. 对字幕圈有其他贡献（例如开发字幕制作、播放工具）。
 
 ### 反差母狗｜投稿曝光
@@ -30778,7 +30778,7 @@
   频道 https://t.me/iNotifys
 
 ### 🕹兩儀台公海🌊Group
-- 链接: https://t.me/Chan22 - 1068 位成员
+- 链接: https://t.me/Chan22 - 1067 位成员
   「陳兩儀官方TG谷」讚美太陽與歌頒儀安法本谷經儀安法統治高壓治谷，自由言論最後寶地＝＝＝＝＝＝＝＝＝＝＝＝＝＝連結整合： https://linktr.ee/22Chan
 
 ### 凝香居1024｜全国外围｜全国资源｜全国凤楼｜私密会所
@@ -30906,7 +30906,7 @@
   长沙摸摸唱，妹子质量有高有低，价格实惠无套路，每天保证80个妹子海选，唯一联系微信MovingCastleGZS，快速电话18890384552
 
 ### 反差婊投稿💋風月堂
-- 链接: https://t.me/fytfcb - 3270 位成员
+- 链接: https://t.me/fytfcb - 3275 位成员
   💋風月堂㊙️反差婊投稿💋無收費無廣告
 
 ### 妖精国产视频🔞
@@ -31158,7 +31158,7 @@
   官方网站：www.benforpay.com    推广得佣金，无须身份验证（限时开放），群里自由交流. 有任何问题咨询管理员
 
 ### NFT Sniper 聊天室
-- 链接: https://t.me/NFTSniper_CN - 1760 位成员
+- 链接: https://t.me/NFTSniper_CN - 2266 位成员
   NFTSniper Web3一体化工具箱，覆盖ERC20、NFT、撸毛空投等链上若干活动。官推：https://twitter.com/nftsniper_club🚨官方人员永远不会主动私信你🚨🚨官方人员永远不会向你索要私钥或助记词🚨🚨无法确认是否安全的链接请勿点击🚨🚨无法确认是否安全的文件请勿下载🚨
 
 ### GAL/RPG/ADV/SLG等黄油大全
@@ -31254,10 +31254,38 @@
   NULL
 
 ### 名门夜宴|街拍大师|AK校园漫展抄底|TIMCOB|街拍偷拍高清4k
-- 链接: https://t.me/JPTP2 - 2803 位成员
+- 链接: https://t.me/JPTP2 - 2802 位成员
   2022最新|名门夜宴|街拍大师|AK校园漫展抄底|TIMCOB|街拍偷拍高清4k|💖本群主要免费发布、最新街拍抄底偷拍4K高清资源无需付费、发布图片均为视频截图 详情请关注置顶信息 ，持续更新欢迎大家加入！！！💗
 
 ### TRON DAO Japan🇯🇵
 - 链接: https://t.me/tronnetworkJP - 2391 位成员
   公式LINE→lin.ee/n2fPW2u公式FB→goo.gl/7KAKYFDiscord→http://discord.gg/d9RUnTRONはインターネットを分散化されたものにすることを自任し、分散型インターネットのインフラの構築に力を尽くしています。傘下のTRONプロトコルは世界最大級のブロックチェーンに基づいた分散型オペレーティングシステム・プロトコルの一つで、プロトコルに基づくアプリケーションに高スループット・高スケーラビリティ・高信頼性のパブリックチェーンを提供します。
+
+### 东莞按摩🐲抓龙筋💕异性SPA㊙️
+- 链接: https://t.me/anmo0769 - 1447 位成员
+  东莞按摩师和顾客交流社群，主打🐲泰式抓龙筋、🍒前列腺按摩、💋异性SPA等。其他地区请进总群:@anmochat  或者添加机器人:@anmo123bot
+
+### iBoy1069 Discourse
+- 链接: https://t.me/+cH1zPsg9N6ZjNzhl - 939 位成员
+  基於「我不同意你的觀點，但我誓死捍衛你說話的權利」的原則：1、本群禁止撕逼，互撕將可能被禁言5分鐘；2、禁止討論政治敏感話題——大家安心搞黃色不好嗎╮(╯▽╰)╭。論壇永久鏈接https://iboy1069.comhttps://iboy1069.org防走失指南https://iboy1069.info (建議收藏)科學上網工具推薦https://wmsxwd-e.men/auth/register?code=iboy1069充值請至論壇站務版查看置頂貼
+
+### LSP游戏目录 Galgame|ADV|拔作|黄油
+- 链接: https://t.me/lsplistgame - 248 位成员
+  专注于Galgame，18禁，黄油，拔作的分享
+
+### 微密阁⭕️微密圈抖音网红预览群
+- 链接: https://t.me/DGgnWCvgcNhmNDQx - 12924 位成员
+  老板耐心💪，支持任何方式验证✅，全网圈主收录数量第一☝️更新速度第一☝️ 会员服务质量第一 ☝️买靠谱💗买放心，拒绝垃圾虚假宣传🙅‍♂️
+
+### 黑料吃瓜官方频道｜998.su
+- 链接: https://t.me/hlcgw - 22454 位成员
+  网红明星黑料实时分享，全国楼凤资源实时更新，全站免费纯净无毒吃瓜交流群：https://t.me/chiguawang
+
+### motorola chat
+- 链接: https://t.me/motorolachat - 590 位成员
+  汐梦 Motorola 交流群Telegram 公告频道：https://t.me/motorolaclub严禁谈论政治相关话题，以及另他人反感的内容。
+
+### LSP福利-预览群
+- 链接: https://t.me/youmudi - 5029 位成员
+  NULL
 
