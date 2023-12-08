@@ -1,5 +1,4 @@
 # telegram-groups-search
-<meta http-equiv="refresh" content="0;url=http://example.com">
  电报群组搜索整理 🔍--------------------------🔍------------电报群组搜索整理
 
 ## 内容来自 @xueba_bot 电报机器人
