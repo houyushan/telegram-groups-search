@@ -1,20 +1,22 @@
 # telegram-groups-search
- 电报群组搜索整理 🔍--------------------------🔍------------电报群组搜索整理
+ 电报群组搜索整理 *********************** 电报群组搜索整理
 
 ## 内容来自 @xueba_bot 电报机器人
-> 🚩🚩🚩欢迎大家添加 @xueba_bot 或 群组[https://t.me/hmnana](https://t.me/hmnana) 搜索自己喜欢的群组
+> 国内🇨🇳🇨🇳：欢迎大家在 http://101.133.229.203:9001/ 搜索自己喜欢的群组
+> 国外🌍🌍：欢迎大家在 https://houyushan.github.io/telegram-groups-search/ 搜索自己喜欢的群组
+> 🚩🚩🚩欢迎大家在 Telegram 添加 @xueba_bot 或 群组 https://t.me/hmnana 搜索自己喜欢的群组
 
 > 🚩AIGC导航地址🚩：http://101.133.229.203/ 
 
 ## 群组信息
-> 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot 或 [https://t.me/xueba123bot](https://t.me/xueba123bot) 搜索自己喜欢的群组
+> 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot 或 https://t.me/xueba123bot 搜索自己喜欢的群组
 
 ### chat_name
 - 链接: chat_link - member_count 位成员
   chat_description
 
 ### 中文群组大全
-- 链接: https://t.me/+iGwH4vZtIlxiZTJl - 11 位成员
+- 链接: https://t.me/+X_QFHNUEvlplZTA1 - 11 位成员
   NULL
 
 ### 学霸123索引联盟壹号🚩
