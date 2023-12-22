@@ -1,6 +1,10 @@
 其他
 ============
 
+**Stargazers over time**
+
+[![Stargazers over time](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
+
 **内容来自 @xueba_bot 电报机器人**
 
 > 国内🇨🇳🇨🇳：欢迎大家在 http://101.133.229.203:9001/ 搜索自己喜欢的群组

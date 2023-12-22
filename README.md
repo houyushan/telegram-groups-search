@@ -1,6 +1,7 @@
 # telegram-groups-search
  电报群组搜索整理 *********************** 电报群组搜索整理
 
+## Stargazers over time
 [![Stargazers over time](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
 
 ## 内容来自 @xueba_bot 电报机器人
