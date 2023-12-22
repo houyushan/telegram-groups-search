@@ -1,6 +1,8 @@
 # telegram-groups-search
  电报群组搜索整理 *********************** 电报群组搜索整理
 
+[![Stargazers over time](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
+
 ## 内容来自 @xueba_bot 电报机器人
 > 国内🇨🇳🇨🇳：欢迎大家在 http://101.133.229.203:9001/ 搜索自己喜欢的群组
 > 国外🌍🌍：欢迎大家在 https://houyushan.github.io/telegram-groups-search/ 搜索自己喜欢的群组
@@ -20,7 +22,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+9_Mfu-4vKmxjNzZl - 70 位成员
+- 链接: https://t.me/+mIF9mhymHLw3NDU1 - 76 位成员
   NULL
 
 ### ALL About RSS
@@ -37742,4 +37744,12 @@
 ### 老照片
 - 链接: https://t.me/record_history - 861 位成员
   来源： 老照片bot https://m.weibo.cn/u/6767321459
+
+### 萝莉 少女 啊朱 熟女 母子 学生 抖音 强奸
+- 链接: https://t.me/+6boFTfGtvtgxOTAx - 10 位成员
+  NULL
+
+### 萝莉 少女 啊朱 熟女 母子 学生 抖音 强奸
+- 链接: https://t.me/luol1255 - 11 位成员
+  NULL
 
