@@ -1,10 +1,6 @@
 其他
 ============
 
-**Stargazers over time**
-
-[![Stargazers over time](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
-
 **内容来自 @xueba_bot 电报机器人**
 
 > 国内🇨🇳🇨🇳：欢迎大家在 http://101.133.229.203:9001/ 搜索自己喜欢的群组
@@ -12,6 +8,10 @@
 > 🚩🚩🚩欢迎大家在 Telegram 添加 @xueba_bot 或 群组 https://t.me/hmnana 搜索自己喜欢的群组
 
 > 🚩AIGC导航地址🚩：http://101.133.229.203/
+
+**Github 星数**
+
+[![Github 星数](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
 
 **# chat_name**
 

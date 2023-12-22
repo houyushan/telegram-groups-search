@@ -1,9 +1,6 @@
 # telegram-groups-search
  电报群组搜索整理 *********************** 电报群组搜索整理
 
-## Stargazers over time
-[![Stargazers over time](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
-
 ## 内容来自 @xueba_bot 电报机器人
 > 国内🇨🇳🇨🇳：欢迎大家在 http://101.133.229.203:9001/ 搜索自己喜欢的群组
 > 国外🌍🌍：欢迎大家在 https://houyushan.github.io/telegram-groups-search/ 搜索自己喜欢的群组
@@ -11,6 +8,9 @@
 
 > 🚩AIGC导航地址🚩：http://101.133.229.203/ 
 
+
+## Github 星数
+[![Github 星数](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
 ## 群组信息
 > 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot 或 https://t.me/xueba123bot 搜索自己喜欢的群组
 
