@@ -11,7 +11,7 @@
 
 **Github 星数**
 
-[![Github 星数](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
+[![Github 星数](https://api.star-history.com/svg?repos=houyushan/telegram-groups-search)](https://api.star-history.com/svg?repos=houyushan/telegram-groups-search)
 
 **# chat_name**
 
@@ -25,7 +25,7 @@
 
 **# 学霸123索引联盟壹号🚩**
 
-- 链接: https://t.me/+WirTG-wPc6oyY2Rl - 102 位成员
+- 链接: https://t.me/+emCyCdbg0kM0Zjc1 - 104 位成员
   NULL
 
 **# 亚马跌**

@@ -10,7 +10,7 @@
 
 
 ## Github 星数
-[![Github 星数](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
+[![Github 星数](https://api.star-history.com/svg?repos=houyushan/telegram-groups-search)](https://api.star-history.com/svg?repos=houyushan/telegram-groups-search)
 ## 群组信息
 > 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot 或 https://t.me/xueba123bot 搜索自己喜欢的群组
 
@@ -23,7 +23,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+WirTG-wPc6oyY2Rl - 102 位成员
+- 链接: https://t.me/+emCyCdbg0kM0Zjc1 - 104 位成员
   NULL
 
 ### ALL About RSS
@@ -38481,4 +38481,8 @@
 ### 群组频道推荐
 - 链接: https://t.me/joinchat/ErvV26OnWppmZDgx - 933 位成员
   欢迎推荐，欢迎推广。也欢迎对已有频道群组做出评论和建议。本群邀请链接： https://t.me/joinchat/ErvV26OnWppmZDgx
+
+### 👅反差婊 学生 萝莉 少女 少妇 猎奇 福利资源大全🔞
+- 链接: https://t.me/xues008 - 11 位成员
+  不定时更新各种资源
 
