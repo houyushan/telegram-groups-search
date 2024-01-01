@@ -23,7 +23,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+w6h5DKdbBGk1NTVl - 120 位成员
+- 链接: https://t.me/+c77IHT9j8sc3ZjY9 - 123 位成员
   NULL
 
 ### ALL About RSS
@@ -38533,4 +38533,8 @@
 ### 国服马超 生活母体 国服镜
 - 链接: https://t.me/+Jxg5JXckBkw4NThl - 16 位成员
   吃瓜合集地
+
+### 达闻西的安全屋
+- 链接: https://t.me/+wAdXffj0Dy80NDc1 - 2 位成员
+  NULL
 
