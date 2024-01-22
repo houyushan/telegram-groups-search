@@ -23,7 +23,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+wwLdl4yzz_BkMzc1 - 171 位成员
+- 链接: https://t.me/+TJA4E8ufB2xhYTY1 - 175 位成员
   NULL
 
 ### ALL About RSS
@@ -24875,7 +24875,7 @@
   主播热舞福利 （快手 抖音 斗鱼 虎牙 花椒  推特 网易cc 韩国Bj等各平台主播定制福利热舞 裸舞系列）抖音风等等 群地址 https://t.me/rewu22
 
 ### 吃瓜看片 福利资源整合
-- 链接: https://t.me/+_ms4A2_k36AyMTBk - 919 位成员
+- 链接: https://t.me/+4X97yfnfY0ZhNTg0 - 929 位成员
   资源搜索群 全网各种资源任意搜 https://t.me/sou880
 
 ### 01号技师（1或在，一律不回） 客服
@@ -38519,7 +38519,7 @@
   NULL
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
-- 链接: https://t.me/+H-F3Qz07aDNiYjg1 - 34 位成员
+- 链接: https://t.me/+nypuyAgcEpdiOTQ9 - 34 位成员
   不定时更新各种资源
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
@@ -42835,6 +42835,10 @@
   不定时更新 资源搜索群全网资源任意搜https://t.me/sou880
 
 ### ssrv2机场节点每日分享
-- 链接: https://t.me/+hrcVEQcCTmYyYWI1 - 7 位成员
+- 链接: https://t.me/+QzLc6jC9MQ8xODM1 - 8 位成员
+  NULL
+
+### 华纳国际 真人视讯 PG电子 JDB电子官方 合作伙伴
+- 链接: https://t.me/HNGJ9855 - 37 位成员
   NULL
 
