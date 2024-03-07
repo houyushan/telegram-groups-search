@@ -15,7 +15,7 @@
 
 **# Arch Linux Chinese Messages**
 
-- 链接: https://t.me/archlinuxcn - 7596 位成员
+- 链接: https://t.me/archlinuxcn - 7840 位成员
   Arch Linux 中文相关信息跟进 Arch Linux 日常踩坑预警，翻译官方新闻， testing 测试预警等。另有 @archlinuxcn_updates 提供滚动打包记录。频道内容来自 Arch Linux 中文社区群组 @archlinuxcn_grouphttps://fars.ee/~readme.html
 
 **# 计算机与部分其他种类书籍资源**
@@ -30,12 +30,12 @@
 
 **# 你不知道的内幕消息**
 
-- 链接: https://t.me/inside1024 - 62913 位成员
+- 链接: https://t.me/inside1024 - 63023 位成员
   一些你不知道的内幕消息最新行业资讯、以及大公司的负面新闻、财经观点信息、好物推荐等投稿/合作： @inside1024_bot内容均来源投稿、推特、即刻等公共平台，均不代表本频道观点
 
 **# ☁️云上报刊亭📰 [精选] 🅥 -- 新闻，报纸，杂志，电子书，资料 PDF🗞**
 
-- 链接: https://t.me/magazinesclub - 9023 位成员
+- 链接: https://t.me/magazinesclub - 9016 位成员
   英文报刊杂志，电子书，报纸，外文杂志精选🅥 Newspaper, magazines and e-book collections 请于下载后24小时内删除，如果喜欢杂志，请购买正版！𝙿𝚕𝚎𝚊𝚜𝚎 𝚍𝚎𝚕𝚎𝚝𝚎 𝚊𝚏𝚝𝚎𝚛 𝟸𝟺 𝚑𝚘𝚞𝚛𝚜. 𝙸𝚏 𝚢𝚘𝚞 𝚕𝚒𝚔𝚎 𝚝𝚑𝚎 𝚖𝚊𝚐𝚊𝚣𝚒𝚗𝚎, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚙𝚞𝚛𝚌𝚑𝚊𝚜𝚎 𝚏𝚛𝚘𝚖 𝚊 𝚙𝚞𝚋𝚕𝚒𝚜𝚑𝚎r
 
 **# 杂志新闻**
@@ -60,12 +60,12 @@
 
 **# 竹新社**
 
-- 链接: https://t.me/tnews365 - 97754 位成员
+- 链接: https://t.me/tnews365 - 97845 位成员
   7×24不定时编译国内外媒体的即时新闻报道。查阅新闻资料，前往竹新资料室： t.me/kt_database如有任何问题，联系竹新社小编： t.me/ktnews_editor_bot注：本频道原创新闻按照CC-BY-4.0协议发布。
 
 **# 推特精选**
 
-- 链接: https://t.me/twitter_read - 10796 位成员
+- 链接: https://t.me/twitter_read - 10808 位成员
   如需撤稿，请在评论区联系我们。我们谢绝营利性质或政府性质的合作，还请见谅。如果您想关注更多频道，欢迎参考： t.me/channel_push
 
 **# 吴说区块链 新闻与深度**
@@ -185,12 +185,12 @@
 
 **# 纽约时报 全文 实时推送**
 
-- 链接: https://t.me/niuyueshibao_rss - 27974 位成员
+- 链接: https://t.me/niuyueshibao_rss - 27993 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# ACL4SSR**
 
-- 链接: https://t.me/ACL4SSR - 24019 位成员
+- 链接: https://t.me/ACL4SSR - 23902 位成员
   https://github.com/ACL4SSR/ACL4SSR 官方频道【推广】打开支付宝首页搜"711629184"领红包，领到大红包的小伙伴赶紧使用哦!群组只是为了启用评论功能而设置的，所以请不要加入。如需评论，请直接点击频道内推文下方的评论按钮（没有按钮的话就请升级到 Telegram 的最新版本），那个功能不需要加入群组也可以正常使用。如果加入了那个群，会被机器人踢出并封禁 1 天，被封禁的时候评论功能也是不可用的。
 
 **# FT中文网 全文 实时推送**
@@ -260,7 +260,7 @@
 
 **# 【吃瓜部落】门事件/黑料/新闻**
 
-- 链接: https://t.me/chigua8 - 64127 位成员
+- 链接: https://t.me/chigua8 - 69887 位成员
   群组 @chigua6门事件/吃瓜/黑料/新闻/八卦интересное видеоShare interesting videos재 미 있 는 영상 공유面白いビデオを共有するفيديو مضحك
 
 **# 新币担保 @xinbi 官方群**
@@ -280,7 +280,7 @@
 
 **# 国学|中医|儒释道|群组**
 
-- 链接: https://t.me/zhgxwh - 3125 位成员
+- 链接: https://t.me/zhgxwh - 3130 位成员
   微信mingzhang567，备注国学，中医，道法。本群禁止发送或论有关「政治、NSFW、广告、引流、推广、不良链接/文件等」内容。
 
 **# 舒琴比特币行情资讯(其他均为仿冒)**
@@ -453,11 +453,6 @@
 - 链接: https://t.me/Tw420Tw - 1794 位成员
   本群不做任何的買賣，不允許討論政治議題，如有被騙的朋友請直接爆光在群內，提醒大家！不要相信群內主動私聊買賣的人！
 
-**# 东风-马列毛主义评论**
-
-- 链接: https://t.me/dongfengmaliemaozhuyipipan - 1679 位成员
-  NULL
-
 **# 禁闻网**
 
 - 链接: https://t.me/jinxw - 4444 位成员
@@ -538,9 +533,9 @@
 - 链接: https://t.me/mbkhcq1/445 - 28301 位成员
   第一手独家新闻 速度和可靠性..缅北真实事件曝光 国内外吃瓜新闻曝光 资源搜索群 @tgse8有事联系人 @ksixx广告招商处 @jisoujqr
 
-**# 17吃瓜—万能搜索**
+**# 瓜圈吃瓜—万能搜索**
 
-- 链接: https://t.me/dmcg123 - 56668 位成员
+- 链接: https://t.me/dmcg123 - 49161 位成员
   群组@t.me/dmcg123门事件/吃瓜/黑料/新闻/八卦интересное видеоShare interesting videos재 미 있 는 영상 공유面白いビデオを共有するفيديو مضحكVIEW IN TELEGRAM
 
 **# 内涵段子**
@@ -670,12 +665,12 @@
 
 **# 汇旺担保-规则介绍**
 
-- 链接: https://t.me/HuiOneGZ - 4012 位成员
+- 链接: https://t.me/HuiOneGZ - 2636 位成员
   支付官网：https://www.7572.com业务联系 @hw666_bot  (拉群/咨询)客服频道 @hwjy  (汇旺交易首字母)供需频道 @hwgx  (汇旺供需首字母)核心大群 @hw444  (永久链接)规则介绍 @huionegz新闻频道 @huionexw记账机器人 @hwjqrbot汇旺担保提供Usdt交易担保，卡接回U担保，跑分担保等，买U币、卖U币，usdt出售、购买、承兑、变现，四方支付，第三方支付，金融等买卖担保。
 
 **# Tg資訊頻道-荃灣海濱花園事務關注組**
 
-- 链接: https://t.me/hoibuncare - 727 位成员
+- 链接: https://t.me/hoibuncare - 717 位成员
   我們並非政治抽水的一羣街坊，我們沒有資源，街坊義工團隊把僅有工餘時間積極推動業委會選舉。只知道海濱花園十分需要更好的屋苑管理及生活社區環境，所以才如此有動力推動改變。關注組TG：https://t.me/hoibuncare關注組TG Group：https://t.me/hoibuncaregroup
 
 **# カバールをやっつけろ👊！**
@@ -762,4 +757,29 @@
 
 - 链接: https://t.me/BLGJZB - 71998 位成员
   铂莱集团官方直营铂莱官方频道 @BLGJVIP铂莱娱乐频道 @BLGJGF铂莱国际福利 @BLJTFL铂莱——新闻 @BLGJXW铂莱直播2群（不禁广告） @blgjz 新闻爆料投稿 @BLGJKFBOT铂莱官方客服 @BLJT01
+
+**# 信号旗规则**
+
+- 链接: https://t.me/xhq_rule - 831 位成员
+  VPS信号旗播报及风向旗参考快讯运营规则和评论管理准则。
+
+**# 香港軍事台**
+
+- 链接: https://t.me/HKMilitary - 17177 位成员
+  從感而發只係一班對軍事政治經濟略懂一二嘅人希望可以教大家一啲軍事知識從而充實大家嘅知識學術區不接受投稿https://www.patreon.com/HKMilitary
+
+**# 原神内鬼吧**
+
+- 链接: https://t.me/yuanshen_leaks - 2912 位成员
+  新闻发布平台：TG、巴哈姆特、贴吧、BillBill、QQ、NGA、ARCA、Twitter
+
+**# 吃瓜群众中心**
+
+- 链接: https://t.me/chigua2024 - 2904 位成员
+  欢迎围观，吃瓜现场。请文明用语，切勿互相诋毁群众吃瓜，每日新闻、爆料、整活、吃瓜、热事、抓奸
+
+**# 福岡航空交通管制部 Fukuoka ACC**
+
+- 链接: https://t.me/pppcjc - 3404 位成员
+  机场导航：http://WWW.DHH.homeshttp://WWW.DHH.bar通知频道： https://t.me/Dhanghaiemby新番通知频道： @dhhanime群内不回复弱智问题，提问前请确认你已阅读过机场的【常见问题】文档群内禁止涉及政治内容和其他机场,任何情况下都请勿泄露本站节点以及订阅
 
