@@ -491,8 +491,8 @@
   精选即刻App热门话题更新。  Twitter: twitter.com/jike_collectionCreated by @i5tar
 
 ### 金十数据 闪电资讯
-- 链接: https://t.me/jin10news - 7275 位成员
-  实时推送【金十数据】 7x24小时股市闪电资讯股票交流群组：https://t.me/YanGuShe频道问题反馈与建议: https://t.me/joinchat/JSRhNRb4yHmVE5DVpuY9vw关键字： 实时 资讯 快讯 7x24 新闻 滚动新闻 股市 股票 美股 A股 理财 经济 基金 金融 财经 港股 研股社
+- 链接: https://t.me/jin10light - 7275 位成员
+  金十数据实时推送  【金十数据】 7x24小时财经&股市&区块链闪电资讯\n  群组关键字： 实时 资讯 快讯 7x24 新闻 滚动新闻 股市 股票 美股 A股 理财 经济 基金 金融 财经 港股
 
 ### 🍭高清壁纸
 - 链接: https://t.me/jingxu6 - 5731 位成员
