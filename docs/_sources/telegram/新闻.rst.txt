@@ -15,7 +15,7 @@
 
 **# Arch Linux Chinese Messages**
 
-- 链接: https://t.me/archlinuxcn - 8188 位成员
+- 链接: https://t.me/archlinuxcn - 8193 位成员
   Arch Linux 中文相关信息跟进 Arch Linux 日常踩坑预警，翻译官方新闻， testing 测试预警等。另有 @archlinuxcn_updates 提供滚动打包记录。频道内容来自 Arch Linux 中文社区群组 @archlinuxcn_grouphttps://fars.ee/~readme.html
 
 **# 计算机与部分其他种类书籍资源**
@@ -65,12 +65,12 @@
 
 **# 竹新社**
 
-- 链接: https://t.me/tnews365 - 99609 位成员
+- 链接: https://t.me/tnews365 - 99610 位成员
   7×24不定时编译国内外媒体的即时新闻报道。查阅新闻资料，前往竹新资料室： t.me/kt_database如有任何问题，联系竹新社小编： t.me/ktnews_editor_bot注：本频道原创新闻按照CC-BY-4.0协议发布。
 
 **# 推特精选**
 
-- 链接: https://t.me/twitter_read - 10633 位成员
+- 链接: https://t.me/twitter_read - 10632 位成员
   如需撤稿，请在评论区联系我们。我们谢绝营利性质或政府性质的合作，还请见谅。如果您想关注更多频道，欢迎参考： t.me/channel_push
 
 **# 吴说区块链 新闻与深度**
@@ -120,7 +120,7 @@
 
 **# 德国 德国之声 中文全文**
 
-- 链接: https://t.me/dw_rss - 6046 位成员
+- 链接: https://t.me/dw_rss - 6045 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# wikipedia-zh-sports**
@@ -190,17 +190,17 @@
 
 **# 纽约时报 全文 实时推送**
 
-- 链接: https://t.me/niuyueshibao_rss - 28157 位成员
+- 链接: https://t.me/niuyueshibao_rss - 28158 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# ACL4SSR**
 
-- 链接: https://t.me/ACL4SSR - 23846 位成员
+- 链接: https://t.me/ACL4SSR - 23843 位成员
   https://github.com/ACL4SSR/ACL4SSR 官方频道【推广】打开支付宝首页搜"711629184"领红包，领到大红包的小伙伴赶紧使用哦!群组只是为了启用评论功能而设置的，所以请不要加入。如需评论，请直接点击频道内推文下方的评论按钮（没有按钮的话就请升级到 Telegram 的最新版本），那个功能不需要加入群组也可以正常使用。如果加入了那个群，会被机器人踢出并封禁 1 天，被封禁的时候评论功能也是不可用的。
 
 **# FT中文网 全文 实时推送**
 
-- 链接: https://t.me/ftzhongwen_rss - 6113 位成员
+- 链接: https://t.me/ftzhongwen_rss - 6090 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 日本 共同网 朝日新闻 日经中文网**
@@ -345,7 +345,7 @@
 
 **# PT风向旗**
 
-- 链接: https://t.me/Ptfxq - 8203 位成员
+- 链接: https://t.me/Ptfxq - 8206 位成员
   PT 风向旗关注一切 PT 相关新闻，为你筛选出最具价值的信息。This is a channel for tracker news.⚠️ 注意：请勿在本频道求任何 PT 站点的邀请！⚠️ Attention: Do NOT request any tracker invites in this channel.群组： @PtfxqGroup投稿： @PtfxqPWSBot
 
 **# wulabing的公告板**
@@ -385,7 +385,7 @@
 
 **# QAuxiliary**
 
-- 链接: https://t.me/QAuxiliary - 30382 位成员
+- 链接: https://t.me/QAuxiliary - 30401 位成员
   QAuxiliary 频道CI 构建发布频道 @QAuxiliary_CI群组 https://t.me/+KyMD8cherUdmOTFlGitHub https://github.com/cinit/QAuxiliary发布评论消息前请先加入群组。有问题请先阅读置顶。#版本发布 #频道通知 #使用指南
 
 **# ミユポワ🕊**
@@ -465,7 +465,7 @@
 
 **# 哔哩漫游**
 
-- 链接: https://t.me/biliroaming - 37408 位成员
+- 链接: https://t.me/biliroaming - 37431 位成员
   评论需要先进群。不然会被禁言。
 
 **# 探囊取物BTC**
@@ -670,7 +670,7 @@
 
 **# 汇旺担保-规则介绍**
 
-- 链接: https://t.me/HuiOneGZ - 1583 位成员
+- 链接: https://t.me/HuiOneGZ - 1582 位成员
   支付官网：https://www.7572.com业务联系 @hw666_bot  (拉群/咨询)客服频道 @hwjy  (汇旺交易首字母)供需频道 @hwgx  (汇旺供需首字母)核心大群 @hw444  (永久链接)规则介绍 @huionegz新闻频道 @huionexw记账机器人 @hwjqrbot汇旺担保提供Usdt交易担保，卡接回U担保，跑分担保等，买U币、卖U币，usdt出售、购买、承兑、变现，四方支付，第三方支付，金融等买卖担保。
 
 **# Tg資訊頻道-荃灣海濱花園事務關注組**
@@ -775,7 +775,7 @@
 
 **# 原神内鬼吧**
 
-- 链接: https://t.me/yuanshen_leaks - 3204 位成员
+- 链接: https://t.me/yuanshen_leaks - 3203 位成员
   新闻发布平台：TG、巴哈姆特、贴吧、BillBill、QQ、NGA、ARCA、Twitter
 
 **# 吃瓜群众中心**
@@ -795,7 +795,7 @@
 
 **# 吃瓜爆料|曝光吃瓜|头条新闻**
 
-- 链接: https://t.me/baoguang_chigua_resou - 5128 位成员
+- 链接: https://t.me/baoguang_chigua_resou - 5126 位成员
   NULL
 
 **# 八卦吃瓜|简约娱乐|新闻娱乐**
@@ -917,4 +917,9 @@
 
 - 链接: https://t.me/tabakUud - 101 位成员
   本台主营：三得利、股票、大宗商品、铁路、百合购买焦煤请在评论区留言（不
+
+**# DAOCO中文国际❶官方群**
+
+- 链接: https://t.me/yfidao - 5666 位成员
+  DAOCO是DAO治理下的区块链经济形态，致力于区块链技术、金融、投资等领域的发展，打造全球首个Defi金融生态，将赋予拥护者财富自由。紧紧围绕DAOCO搭建包括：聚合交易平台、销毁挖矿、区块链商城、链游等全生态系统。
 
