@@ -15,22 +15,22 @@
 
 **# Arch Linux Chinese Messages**
 
-- 链接: https://t.me/archlinuxcn - 8205 位成员
+- 链接: https://t.me/archlinuxcn - 8214 位成员
   Arch Linux 中文相关信息跟进 Arch Linux 日常踩坑预警，翻译官方新闻， testing 测试预警等。另有 @archlinuxcn_updates 提供滚动打包记录。频道内容来自 Arch Linux 中文社区群组 @archlinuxcn_grouphttps://fars.ee/~readme.html
 
 **# 计算机与部分其他种类书籍资源**
 
-- 链接: https://t.me/bookusefor2 - 18687 位成员
+- 链接: https://t.me/bookusefor2 - 18685 位成员
   收集一些与互联网相关或自己觉得有价值的书籍系列频道@bookusefor4   普通休闲书籍资源@bookusefor2   计算机与部分其他种类书籍资源@bookusefor3   计算机类书籍@jumpto22222   目录频道中信出版社书籍清华大学出版社书籍电子工业出版社书籍牛津通识读本中亚正版【74册】走向未来丛书理想国译丛 M系列（共42册）商务印书馆汉译世界名著 A哲学类商务印书馆汉译世界名著 C政治·法律·社会类商务印书馆汉译世界名著 D经济类.....
 
 **# 经济信息联播**
 
-- 链接: https://t.me/eco_cn - 5646 位成员
+- 链接: https://t.me/eco_cn - 5673 位成员
   独立，个性的财经、金融资讯早报，汇总美股、A股收市信息，以及提供具有重大影响力的研报。
 
 **# 你不知道的内幕消息**
 
-- 链接: https://t.me/inside1024 - 66155 位成员
+- 链接: https://t.me/inside1024 - 66539 位成员
   一些你不知道的内幕消息最新行业资讯、以及大公司的负面新闻、财经观点信息、好物推荐等投稿/合作： @inside1024_bot内容均来源投稿、推特、即刻等公共平台，均不代表本频道观点
 
 **# 金十数据 闪电资讯**
@@ -50,7 +50,7 @@
 
 **# 新闻实验室**
 
-- 链接: https://t.me/newslab2020 - 6556 位成员
+- 链接: https://t.me/newslab2020 - 6554 位成员
   新闻实验室的频道 >>>  🎁会员计划：http://newslab.info/join/  >>> ▶️YouTube: https://www.youtube.com/channel/UCFsbHZ_mIFElwDxypEZjKWA/
 
 **# Rachel 碎碎念**
@@ -65,12 +65,12 @@
 
 **# 竹新社**
 
-- 链接: https://t.me/tnews365 - 99911 位成员
+- 链接: https://t.me/tnews365 - 99971 位成员
   7×24不定时编译国内外媒体的即时新闻报道。查阅新闻资料，前往竹新资料室： t.me/kt_database如有任何问题，联系竹新社小编： t.me/ktnews_editor_bot注：本频道原创新闻按照CC-BY-4.0协议发布。
 
 **# 推特精选**
 
-- 链接: https://t.me/twitter_read - 10601 位成员
+- 链接: https://t.me/twitter_read - 10598 位成员
   如需撤稿，请在评论区联系我们。我们谢绝营利性质或政府性质的合作，还请见谅。如果您想关注更多频道，欢迎参考： t.me/channel_push
 
 **# 吴说区块链 新闻与深度**
@@ -120,7 +120,7 @@
 
 **# 德国 德国之声 中文全文**
 
-- 链接: https://t.me/dw_rss - 6040 位成员
+- 链接: https://t.me/dw_rss - 6049 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# wikipedia-zh-sports**
@@ -155,7 +155,7 @@
 
 **# 知乎日报 全文 实时推送**
 
-- 链接: https://t.me/zhihuribao_rss - 12873 位成员
+- 链接: https://t.me/zhihuribao_rss - 12929 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 澳大利亚 广播公司 中文全文**
@@ -190,17 +190,17 @@
 
 **# 纽约时报 全文 实时推送**
 
-- 链接: https://t.me/niuyueshibao_rss - 28156 位成员
+- 链接: https://t.me/niuyueshibao_rss - 28171 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# ACL4SSR**
 
-- 链接: https://t.me/ACL4SSR - 23835 位成员
+- 链接: https://t.me/ACL4SSR - 23833 位成员
   https://github.com/ACL4SSR/ACL4SSR 官方频道【推广】打开支付宝首页搜"711629184"领红包，领到大红包的小伙伴赶紧使用哦!群组只是为了启用评论功能而设置的，所以请不要加入。如需评论，请直接点击频道内推文下方的评论按钮（没有按钮的话就请升级到 Telegram 的最新版本），那个功能不需要加入群组也可以正常使用。如果加入了那个群，会被机器人踢出并封禁 1 天，被封禁的时候评论功能也是不可用的。
 
 **# FT中文网 全文 实时推送**
 
-- 链接: https://t.me/ftzhongwen_rss - 6087 位成员
+- 链接: https://t.me/ftzhongwen_rss - 6096 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 日本 共同网 朝日新闻 日经中文网**
@@ -235,7 +235,7 @@
 
 **# 早起读书 网盘 资源共享**
 
-- 链接: https://t.me/ideahub_ml - 10227 位成员
+- 链接: https://t.me/ideahub_ml - 10222 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# ☎️菠菜联盟--积分提现--兑换比特币BTC**
@@ -285,7 +285,7 @@
 
 **# 舒琴比特币行情资讯(其他均为仿冒)**
 
-- 链接: https://t.me/bitebishuqin - 20058 位成员
+- 链接: https://t.me/bitebishuqin - 20087 位成员
   💫Youtube频道：分析师舒琴谈比特币💫每周1，3，5晚上8点左右更新💫舒琴助理（加VIP会员）：请联系  t.me/shuqinzhuli其他群和私聊账户都是仿冒诈骗本群为公开群，主要更新新闻。另有Vip会员群，每天更新操作点位、机构数据和潜力币信息，可以找小助理 t.me/shuqinzhuli 了解下
 
 **# ?综合导航/搜索引擎/频道搜索/币圈服务/中文导航**
@@ -345,7 +345,7 @@
 
 **# PT风向旗**
 
-- 链接: https://t.me/Ptfxq - 8231 位成员
+- 链接: https://t.me/Ptfxq - 8233 位成员
   PT 风向旗关注一切 PT 相关新闻，为你筛选出最具价值的信息。This is a channel for tracker news.⚠️ 注意：请勿在本频道求任何 PT 站点的邀请！⚠️ Attention: Do NOT request any tracker invites in this channel.群组： @PtfxqGroup投稿： @PtfxqPWSBot
 
 **# wulabing的公告板**
@@ -355,7 +355,7 @@
 
 **# 星洲日报 Sin Chew Daily**
 
-- 链接: https://t.me/sinchewtelegram - 40535 位成员
+- 链接: https://t.me/sinchewtelegram - 40546 位成员
   《星洲日报》Telegram平台 每天为你送上即时及重要新闻Sin Chew Media Corporation Berhad (Company No. 198301003518 )
 
 **# Winrayland中文媒体网站**
@@ -385,12 +385,12 @@
 
 **# QAuxiliary**
 
-- 链接: https://t.me/QAuxiliary - 30713 位成员
+- 链接: https://t.me/QAuxiliary - 30802 位成员
   QAuxiliary 频道CI 构建发布频道 @QAuxiliary_CI群组 https://t.me/+KyMD8cherUdmOTFlGitHub https://github.com/cinit/QAuxiliary发布评论消息前请先加入群组。有问题请先阅读置顶。#版本发布 #频道通知 #使用指南
 
 **# ミユポワ🕊**
 
-- 链接: https://t.me/miyupova - 1537 位成员
+- 链接: https://t.me/miyupova - 1536 位成员
   主に国際政治社会の情報収集です☺️知っておきたい、保留しておきたい、後で見返したい情報を引用、自動翻訳、修正、投稿しています✍️投稿した内容に私個人の同意不同意の意味はありません⚠️リアクションの顔文字で多少の気持ちは乗せます😁👍チャットチャンネル：https://t.me/join_miyupovabarX(旧Twitter)https://x.com/miyumiyupova ではリン・ウッド氏とGeneralMCニュースのTelegramの和訳投稿😉Qストームライダーも🤗
 
 **# 懒懒小窝**
@@ -400,7 +400,7 @@
 
 **# 经济学人 The Economist 2021**
 
-- 链接: https://t.me/jjxrchannel - 288 位成员
+- 链接: https://t.me/jjxrchannel - 292 位成员
   NULL
 
 **# 股癌台股世界大哥**
@@ -455,12 +455,12 @@
 
 **# 禁闻网**
 
-- 链接: https://t.me/jinxw - 4879 位成员
+- 链接: https://t.me/jinxw - 4876 位成员
   禁闻网新闻频道
 
 **# 陌上美国MoshangUS**
 
-- 链接: https://t.me/moshangus - 6438 位成员
+- 链接: https://t.me/moshangus - 6434 位成员
   独立快捷的美国生活资讯和新闻时评
 
 **# 哔哩漫游**
@@ -508,11 +508,6 @@
 - 链接: https://t.me/chigua206 - 49 位成员
   NULL
 
-**# Free 中文**
-
-- 链接: https://t.me/FreeChinese - 4639 位成员
-  新闻
-
 **# 股癌美股夜貓仔**
 
 - 链接: https://t.me/+yNPCxMq_Z0MwYjY9 - 71530 位成员
@@ -540,7 +535,7 @@
 
 **# 瓜圈吃瓜—万能搜索**
 
-- 链接: https://t.me/dmcg123 - 47202 位成员
+- 链接: https://t.me/dmcg123 - 47198 位成员
   群组@t.me/dmcg123门事件/吃瓜/黑料/新闻/八卦интересное видеоShare interesting videos재 미 있 는 영상 공유面白いビデオを共有するفيديو مضحكVIEW IN TELEGRAM
 
 **# 内涵段子**
@@ -550,12 +545,12 @@
 
 **# 暴露你的女友❤️‍🔥**
 
-- 链接: https://t.me/baolumugou - 18448 位成员
+- 链接: https://t.me/baolumugou - 18499 位成员
   当婊子就不要立牌坊全网搜集精品露脸素人，欢迎投稿羞辱https://t.me/+2PKu72tXon5hOGMx本频道并不持有任何资源，一切均为转载。如果你认为其中侵犯了你的权利，请私信或评论联系消息源删除（请发链接）。I do not hold any of the contents I posted. Should any contents violate your rights, please DM (contact) the person who posted to delete.
 
 **# CyanNAI | News&New Tech for AI**
 
-- 链接: https://t.me/CyanNAI - 7755 位成员
+- 链接: https://t.me/CyanNAI - 7746 位成员
   频道包含以下内容：- Artificial Intelligence   - StableDiffusion/NovelAI Draw  - LLM 语言模型相关  - Finetune 个人微调  - Try 以及踩坑指南...  - News 前沿新闻站- 偶尔对AI方面健政- 经常不正经偶尔很认真的频道- 近期Cyan较忙，原创内容比例会大幅度降低广告&推广联系 @CyanFalseBotHardCore子频道 @CyanNAIReport
 
 **# 浪人新闻**
@@ -575,7 +570,7 @@
 
 **# 经济学人 PDF**
 
-- 链接: https://t.me/OnlyTheEconomistPDF - 4574 位成员
+- 链接: https://t.me/OnlyTheEconomistPDF - 4581 位成员
   NULL
 
 **# 我看到的趣事儿和新闻**
@@ -645,7 +640,7 @@
 
 **# 👋jun😎士🌲坦🌲ding🏯堡💊**
 
-- 链接: https://t.me/cshs_edu_pill - 3253 位成员
+- 链接: https://t.me/cshs_edu_pill - 3250 位成员
   整理鸭大💊资讯，贵鸭学子与其躲房间里痛哭或说服自己接受奇葩管理，不如武德充沛。频道id：Chungshan High School频道内一切消息皆可评论留言回复投稿bot @ContributeSYSUBot频道admin @cshs_headmaster投稿与群组说明 https://t.me/cshs_edu_pill/4198💊高校联盟 @univinfo友好频道 @scut_syndrome若无特别声明，均可转发。
 
 **# 深大的今日份药丸**
@@ -660,7 +655,7 @@
 
 **# 南科大今天完了吗**
 
-- 链接: https://t.me/SUSTechGG - 2528 位成员
+- 链接: https://t.me/SUSTechGG - 2526 位成员
   贵科日常药丸新闻，转载自QQ微信等，不保证真实性，请当做“段子频道”来看待，侵删投稿bot @SUSTechAutoGG_bot💊友校查询：@univinfo太多了就不一一写了。
 
 **# 吃瓜🍉搜 @achiguao**
@@ -670,7 +665,7 @@
 
 **# 汇旺担保-规则介绍**
 
-- 链接: https://t.me/HuiOneGZ - 1561 位成员
+- 链接: https://t.me/HuiOneGZ - 1562 位成员
   支付官网：https://www.7572.com业务联系 @hw666_bot  (拉群/咨询)客服频道 @hwjy  (汇旺交易首字母)供需频道 @hwgx  (汇旺供需首字母)核心大群 @hw444  (永久链接)规则介绍 @huionegz新闻频道 @huionexw记账机器人 @hwjqrbot汇旺担保提供Usdt交易担保，卡接回U担保，跑分担保等，买U币、卖U币，usdt出售、购买、承兑、变现，四方支付，第三方支付，金融等买卖担保。
 
 **# Tg資訊頻道-荃灣海濱花園事務關注組**
@@ -720,7 +715,7 @@
 
 **# 外围精品🌺全球**
 
-- 链接: https://t.me/waiweijingpin - 3888 位成员
+- 链接: https://t.me/waiweijingpin - 3883 位成员
   @xiaohanjingpin微信：ZK336498QQ：1152615344• 单次3K夜8K起 ｜入会门槛188• 靠谱经济无假照，非誠勿擾 💋💋
 
 **# prprCloud 游乐场**
@@ -745,12 +740,12 @@
 
 **# 台中生活圈大小事頻道**
 
-- 链接: https://t.me/taichungogogo - 344 位成员
+- 链接: https://t.me/taichungogogo - 343 位成员
   台中生活、旅遊、時事、政治、建設、好康、活動資訊、政策。
 
 **# AI绘画数字爱好者🎨**
 
-- 链接: https://t.me/aigchobby - 1341 位成员
+- 链接: https://t.me/aigchobby - 1340 位成员
   所有教程合集（包含使用教程、可使用平台、调参教程、作品展示、新闻）：https://qiufeng.notion.site/06fab45ec290447ba41c3fd0f6e78fac新手入门教程《AI数字绘画 stable-diffusion 保姆级教程》：https://mp.weixin.qq.com/s/nDnQuZn3hVgrwqWVada2cw部署UI教程《用Colab免费部署自己的AI绘画云平台—— Stable Diffusion》
 
 **# Gigi Jump - 吱吱斟**
@@ -770,12 +765,12 @@
 
 **# 香港軍事台**
 
-- 链接: https://t.me/HKMilitary - 16785 位成员
+- 链接: https://t.me/HKMilitary - 16771 位成员
   從感而發只係一班對軍事政治經濟略懂一二嘅人希望可以教大家一啲軍事知識從而充實大家嘅知識學術區不接受投稿https://www.patreon.com/HKMilitary
 
 **# 原神内鬼吧**
 
-- 链接: https://t.me/yuanshen_leaks - 3232 位成员
+- 链接: https://t.me/yuanshen_leaks - 3234 位成员
   新闻发布平台：TG、巴哈姆特、贴吧、BillBill、QQ、NGA、ARCA、Twitter
 
 **# 吃瓜群众中心**
@@ -795,7 +790,7 @@
 
 **# 吃瓜爆料|曝光吃瓜|头条新闻**
 
-- 链接: https://t.me/baoguang_chigua_resou - 4853 位成员
+- 链接: https://t.me/baoguang_chigua_resou - 4763 位成员
   NULL
 
 **# 八卦吃瓜|简约娱乐|新闻娱乐**
@@ -810,7 +805,7 @@
 
 **# 吃瓜中心 频道**
 
-- 链接: https://t.me/zh_bbs - 1945 位成员
+- 链接: https://t.me/zh_bbs - 1967 位成员
   电报中文论坛，点击评论区文明发言@wjj456
 
 **# 軍事國際台**
@@ -825,7 +820,7 @@
 
 **# 《布尔什维克》杂志**
 
-- 链接: https://t.me/bolshevik_red - 251 位成员
+- 链接: https://t.me/bolshevik_red - 254 位成员
   《布尔什维克》杂志为国际社会主义革命事业而奋斗。请加入我们，共建一个布尔什维克式的组织！联系邮箱：bolsheviks.red@proton.me推特账号：https://x.com/bolshevik_red?s=11
 
 **# 亚太求职/甩人/找工作**
@@ -855,12 +850,12 @@
 
 **# 当今大马 Malaysiakini Chinese Version**
 
-- 链接: https://t.me/mkinicn - 3196 位成员
+- 链接: https://t.me/mkinicn - 3191 位成员
   大马历史最悠久的独立新闻原生网站■ 欢迎订阅支持独立媒体：     https://rb.gy/oqpnvn■更多报道请点阅《当今大马》 ：    https://www.malaysiakini.com/zh■任何投稿，请先详阅【投稿须知】：          https://www.malaysiakini.com/bulletin/498572■如有任何问题，欢迎致函或拨电询问：    subscribe@malaysiakini.com    +603-7770 0
 
 **# 新闻哥 国际新闻头条时事重大事件**
 
-- 链接: https://t.me/yewaiTQ - 10407 位成员
+- 链接: https://t.me/yewaiTQ - 9855 位成员
   要点资讯，安危事件，曝光爆料，时事新闻，社会热点推送。你关心的才是头条。管理联系： @ptz299
 
 **# 《柬埔寨吃瓜》每日吃瓜 |吃瓜频道**
@@ -885,17 +880,17 @@
 
 **# ᵃᵖᵖ喵：群聊**
 
-- 链接: https://t.me/appmiao - 5065 位成员
+- 链接: https://t.me/appmiao - 5117 位成员
   APP喵圈子：@appmiu之前的评论区丢了，现在切换到这里
 
 **# 大白兔奶糖🍬**
 
-- 链接: https://t.me/ff880011 - 1932 位成员
+- 链接: https://t.me/ff880011 - 1997 位成员
   个人电报🍷 @ye1128 口嗨，经济人勿扰，一个做还有一个小姐妹，微信见面加，可以加QQ🍒。无门槛，上门到付！🎈🎈
 
 **# 缅甸新闻|华人资讯|myanmar news**
 
-- 链接: https://t.me/miandianhuarenzixun - 65583 位成员
+- 链接: https://t.me/miandianhuarenzixun - 65402 位成员
   🌐全球新闻：@huaren_zixun 📡新闻导航：（防失联）@HuarenZM 📲商务合作： @Huaren01🤝求职&招聘：（免费发布）@Huaren_zhaopin_qiuzhi ☎️ 爆料投稿： @miandianhuarenzixunBot
 
 **# 迪拜🇦🇪新闻曝光 ✨烟雨楼✨**
