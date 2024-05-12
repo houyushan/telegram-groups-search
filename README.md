@@ -24,7 +24,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+k_SSye_4Ntw4ZDM1 - 272 位成员
+- 链接: https://t.me/+i2t25F1Mqp40MjY1 - 274 位成员
   NULL
 
 ### ALL About RSS
@@ -17908,7 +17908,7 @@
   【 ?开 元 棋 牌 官 方 直 营 】70 % 分 红 工作室|个人|团队|网红|主播|电销|媒体 站长?劫持?渗透?黑帽 SEO?ASO?CPA?CPS 【 招商频道：https://t.me/KYDLZS_RS7 】
 
 ### 学霸123索引联盟
-- 链接: https://t.me/+ORgwbYN780NmMjI9 - 26 位成员
+- 链接: https://t.me/+ZHZSy9pIyUgxYjZl - 27 位成员
   NULL
 
 ### 404NotFound程序员交流群
@@ -31267,9 +31267,9 @@
 - 链接: https://t.me/sino24 - 8453 位成员
   NULL
 
-### 绝地求生/CSGO/永劫无间外挂
-- 链接: https://t.me/+ln2QrtHHu3RjYzYx - 8464 位成员
-  NULL
+### 手游·端游·外挂 🅥
+- 链接: https://t.me/+bjOJ4pBCS7BiMzVh - 5892 位成员
+  暗区突围.王者荣耀.和平精英.英雄联盟.PUBG.超凡先锋.地铁逃生.cfm.穿越火线.逆战.csgo.高能英雄.金铲铲.永劫无间.使命召唤.无谓契约.APEX.qq飞车.萤火突击.绝地求生.手游端游外挂.游戏外挂
 
 ### 一只云烧
 - 链接: https://t.me/yizhiyunshao - 564 位成员
@@ -38520,7 +38520,7 @@
   NULL
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
-- 链接: https://t.me/+cJkaUMS0_OM2Y2Fl - 46 位成员
+- 链接: https://t.me/+dxj_CCOpkeFmNjg9 - 46 位成员
   不定时更新各种资源
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
@@ -53942,4 +53942,8 @@
 ### 刘梅媞解锁
 - 链接: https://t.me/LMT_Unblock - 1116 位成员
   解锁冷门国家流媒体
+
+### 🔍极搜-中文搜索|AI导航|精准搜索
+- 链接: https://t.me/jisou_zwdh - 195 位成员
+  帮你找到有趣的群、频道、视频、音乐、电影、新闻电报实用教程：https://t.me/yixiudbsyjc
 
