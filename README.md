@@ -1,5 +1,6 @@
 # telegram-groups-search
  电报群组搜索整理 *********************** 电报群组搜索整理
+[![打赏供服务器正常运行](http://101.133.229.203:8000/wp-content/uploads/2024/05/聚合收款-给我打赏.png)](http://101.133.229.203:8000/wp-content/uploads/2024/05/聚合收款-给我打赏.png)
 
 ## 内容来自 @xueba_bot 电报机器人
 > 国内🇨🇳🇨🇳：欢迎大家在 http://101.133.229.203:9001/ 搜索自己喜欢的群组
@@ -24,7 +25,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+BeDdstyQv103ODk9 - 275 位成员
+- 链接: https://t.me/+AZI_lDtSrdZjM2M1 - 276 位成员
   NULL
 
 ### ALL About RSS
@@ -38520,7 +38521,7 @@
   NULL
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
-- 链接: https://t.me/+_PSL3_R-vys1NjA9 - 44 位成员
+- 链接: https://t.me/+mcI2nNr8CMI1OTQ1 - 44 位成员
   不定时更新各种资源
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
@@ -42836,7 +42837,7 @@
   不定时更新 资源搜索群全网资源任意搜https://t.me/sou880
 
 ### ssrv2机场节点每日分享
-- 链接: https://t.me/+veWeSQ-pb7o4MjBl - 7 位成员
+- 链接: https://t.me/+bWwdrJQrEcA3YWY1 - 7 位成员
   NULL
 
 ### 华纳国际 真人视讯 PG电子 JDB电子官方 合作伙伴
