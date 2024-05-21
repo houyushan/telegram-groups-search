@@ -25,7 +25,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+swLghfBs6SZlZWM1 - 283 位成员
+- 链接: https://t.me/+geEvqrGG2vNmY2Y1 - 283 位成员
   NULL
 
 ### ALL About RSS
@@ -38521,7 +38521,7 @@
   NULL
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
-- 链接: https://t.me/+-eAMy-ZuHuRjNGU1 - 43 位成员
+- 链接: https://t.me/+rh89fvgM5E85OWU1 - 43 位成员
   不定时更新各种资源
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
