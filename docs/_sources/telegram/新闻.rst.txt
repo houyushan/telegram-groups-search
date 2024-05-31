@@ -13,6 +13,10 @@
 
 - 内容收集于网络，整理来自 @xueba_bot 电报机器人，对于其中群组的真实性请大家自行鉴别！欢迎大家添加 @xueba_bot  搜索自己喜欢的群组
 
+- [![打赏供服务器正常运行](http://101.133.229.203:8000/wp-content/uploads/2024/05/聚合收款-给我打赏.png)](http://101.133.229.203:8000/wp-content/uploads/2024/05/聚合收款-给我打赏.png)
+
+- [![Github 星数](https://starchart.cc/houyushan/telegram-groups-search.svg)](https://starchart.cc/houyushan/telegram-groups-search)
+
 **# Arch Linux Chinese Messages**
 
 - 链接: https://t.me/archlinuxcn - 8214 位成员
@@ -20,7 +24,7 @@
 
 **# 计算机与部分其他种类书籍资源**
 
-- 链接: https://t.me/bookusefor2 - 18685 位成员
+- 链接: https://t.me/bookusefor2 - 18755 位成员
   收集一些与互联网相关或自己觉得有价值的书籍系列频道@bookusefor4   普通休闲书籍资源@bookusefor2   计算机与部分其他种类书籍资源@bookusefor3   计算机类书籍@jumpto22222   目录频道中信出版社书籍清华大学出版社书籍电子工业出版社书籍牛津通识读本中亚正版【74册】走向未来丛书理想国译丛 M系列（共42册）商务印书馆汉译世界名著 A哲学类商务印书馆汉译世界名著 C政治·法律·社会类商务印书馆汉译世界名著 D经济类.....
 
 **# 经济信息联播**
@@ -30,17 +34,12 @@
 
 **# 你不知道的内幕消息**
 
-- 链接: https://t.me/inside1024 - 66622 位成员
+- 链接: https://t.me/inside1024 - 70536 位成员
   一些你不知道的内幕消息最新行业资讯、以及大公司的负面新闻、财经观点信息、好物推荐等投稿/合作： @inside1024_bot内容均来源投稿、推特、即刻等公共平台，均不代表本频道观点
-
-**# 金十数据 闪电资讯**
-
-- 链接: https://t.me/jin10light - 7275 位成员
-  金十数据实时推送  【金十数据】 7x24小时财经&股市&区块链闪电资讯\n  群组关键字： 实时 资讯 快讯 7x24 新闻 滚动新闻 股市 股票 美股 A股 理财 经济 基金 金融 财经 港股
 
 **# ☁️云上报刊亭📰 [精选] 🅥 -- 新闻，报纸，杂志，电子书，资料 PDF🗞**
 
-- 链接: https://t.me/magazinesclub - 9088 位成员
+- 链接: https://t.me/magazinesclub - 9143 位成员
   英文报刊杂志，电子书，报纸，外文杂志精选🅥 Newspaper, magazines and e-book collections 请于下载后24小时内删除，如果喜欢杂志，请购买正版！𝙿𝚕𝚎𝚊𝚜𝚎 𝚍𝚎𝚕𝚎𝚝𝚎 𝚊𝚏𝚝𝚎𝚛 𝟸𝟺 𝚑𝚘𝚞𝚛𝚜. 𝙸𝚏 𝚢𝚘𝚞 𝚕𝚒𝚔𝚎 𝚝𝚑𝚎 𝚖𝚊𝚐𝚊𝚣𝚒𝚗𝚎, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚙𝚞𝚛𝚌𝚑𝚊𝚜𝚎 𝚏𝚛𝚘𝚖 𝚊 𝚙𝚞𝚋𝚕𝚒𝚜𝚑𝚎r
 
 **# 杂志新闻**
@@ -65,12 +64,12 @@
 
 **# 竹新社**
 
-- 链接: https://t.me/tnews365 - 100022 位成员
+- 链接: https://t.me/tnews365 - 101970 位成员
   7×24不定时编译国内外媒体的即时新闻报道。查阅新闻资料，前往竹新资料室： t.me/kt_database如有任何问题，联系竹新社小编： t.me/ktnews_editor_bot注：本频道原创新闻按照CC-BY-4.0协议发布。
 
 **# 推特精选**
 
-- 链接: https://t.me/twitter_read - 10594 位成员
+- 链接: https://t.me/twitter_read - 10524 位成员
   如需撤稿，请在评论区联系我们。我们谢绝营利性质或政府性质的合作，还请见谅。如果您想关注更多频道，欢迎参考： t.me/channel_push
 
 **# 吴说区块链 新闻与深度**
@@ -103,9 +102,14 @@
 - 链接: https://t.me/ttww_rss - 6085 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
+**# 财经慢报**
+
+- 链接: https://t.me/Financial_Express - 20075 位成员
+  附属群组 @Financial_Express_Chat泛财经类资讯新闻频道，实时覆盖黄金原油外汇股票区块链市场，内容真实中立客观。部分内容按原文摘自墙内财经媒体，并在尾部加入来源。本频道不对其态度导向负责，请客观谨慎看待相关内容，谨防钓鱼误导。部分刷屏内容均为现场超低延迟文字转播，推送频繁敬请谅解。
+
 **# BBC中文 全文 实时推送**
 
-- 链接: https://t.me/bbczhongwen_rss - 21805 位成员
+- 链接: https://t.me/bbczhongwen_rss - 22583 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 全球主流新闻媒体中文速览**
@@ -130,23 +134,18 @@
 
 **# 美国之音 全文 实时推送**
 
-- 链接: https://t.me/meiguozhiyin_rss - 13508 位成员
+- 链接: https://t.me/meiguozhiyin_rss - 13870 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# Free網絡信息自由門 （纯事件为主的翻墙free公益网友闲极无聊自媒体）**
 
-- 链接: https://t.me/todayfreedom - 11465 位成员
+- 链接: https://t.me/todayfreedom - 10860 位成员
   網絡信息自由門 https://t.me/todayfreedom纯事件报道，举烛火烧天，让墙内看到墙外，让墙外知道墙内。选取原则；1.报纯事件.2.墙内抗争及抗争者没人报的或其他媒体刻意忽视矮化的. 3.墙内新闻从来不关注的但属于世界通用应知的.  4.墙内大把可见的不报.制造的新闻不报.
 
 **# wikipedia-zh-entertainment&art**
 
 - 链接: https://t.me/wikipedia_zh_entmt_and_art - 607 位成员
   本群主要討論音樂、戲劇影視、藝術及攝影。如有條目討論，請以條目討論優先。本群允許與上述範圍相關或引伸之政治話題，唯如果有人叫停，仍然必須立即停止。本群整合自藝術及攝影群（ @wikipedia_zh_art  已消失）、音樂群（ @wikipedia_zh_music ）及影視群（ @wikipedia_zh_movie_and_drama ）。主群： @wikipedia_zh_n本群連接： @wikipedia_zh_entmt_and_art
-
-**# 群友问🗳万事答**
-
-- 链接: https://t.me/ShortcutsCN - 44820 位成员
-  频道内容搜索： @WanShiDaSobot群组/评论解封： @TNChannelbot合作🈴️联系： @zaihua_bot发现各种喜闻乐见，只要是问题，你都可以在这里问。群友问期待您的加入！
 
 **# 新闻联播**
 
@@ -155,7 +154,7 @@
 
 **# 知乎日报 全文 实时推送**
 
-- 链接: https://t.me/zhihuribao_rss - 12948 位成员
+- 链接: https://t.me/zhihuribao_rss - 13391 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 澳大利亚 广播公司 中文全文**
@@ -180,7 +179,7 @@
 
 **# 看新闻 学英语 双语新闻**
 
-- 链接: https://t.me/shuangyunews_rss - 10537 位成员
+- 链接: https://t.me/shuangyunews_rss - 11311 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 韩国 中央日报 朝鲜日报**
@@ -190,7 +189,7 @@
 
 **# 纽约时报 全文 实时推送**
 
-- 链接: https://t.me/niuyueshibao_rss - 28185 位成员
+- 链接: https://t.me/niuyueshibao_rss - 28585 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# ACL4SSR**
@@ -200,7 +199,7 @@
 
 **# FT中文网 全文 实时推送**
 
-- 链接: https://t.me/ftzhongwen_rss - 6098 位成员
+- 链接: https://t.me/ftzhongwen_rss - 6137 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 日本 共同网 朝日新闻 日经中文网**
@@ -210,7 +209,7 @@
 
 **# 路透中文 全文 实时推送**
 
-- 链接: https://t.me/lutouzhongwen_rss - 10447 位成员
+- 链接: https://t.me/lutouzhongwen_rss - 10593 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# 华尔街日报**
@@ -235,7 +234,7 @@
 
 **# 早起读书 网盘 资源共享**
 
-- 链接: https://t.me/ideahub_ml - 10222 位成员
+- 链接: https://t.me/ideahub_ml - 10308 位成员
   [RSS全文订阅 实时更新]知乎日报@zhihuribao_rss纽约时报@niuyueshibao_rssBBC中文@bbczhongwen_rss路透中文@lutouzhongwen_rss美国之音@meiguozhiyin_rssFT中文网@ftzhongwen_rss双语新闻@shuangyunews_rss早起读书 书友群@ideahub_ml
 
 **# ☎️菠菜联盟--积分提现--兑换比特币BTC**
@@ -270,7 +269,7 @@
 
 **# 十三月评论**
 
-- 链接: https://t.me/elevemberreview - 5703 位成员
+- 链接: https://t.me/elevemberreview - 5633 位成员
   推送内容以共和国史和（广义的）政治经济学为主，偶尔推送社运相关内容
 
 **# 垃圾场相约2028**
@@ -280,7 +279,7 @@
 
 **# 国学|中医|儒释道|群组**
 
-- 链接: https://t.me/zhgxwh - 3179 位成员
+- 链接: https://t.me/zhgxwh - 3356 位成员
   微信mingzhang567，备注国学，中医，道法。本群禁止发送或论有关「政治、NSFW、广告、引流、推广、不良链接/文件等」内容。
 
 **# 舒琴比特币行情资讯(其他均为仿冒)**
@@ -465,7 +464,7 @@
 
 **# 哔哩漫游**
 
-- 链接: https://t.me/biliroaming - 37564 位成员
+- 链接: https://t.me/biliroaming - 38884 位成员
   评论需要先进群。不然会被禁言。
 
 **# 探囊取物BTC**
@@ -585,22 +584,22 @@
 
 **# 日本新闻-傑士派電台-Gラジオ放送 日本工作留学**
 
-- 链接: https://t.me/Gatsby_Radio - 3548 位成员
+- 链接: https://t.me/Gatsby_Radio - 3690 位成员
   杰士派频道 备用频道 @Gatsby_News杰士派本群 @GatsbyJp2023投稿请私讯 @chonglang8
 
 **# 博度-菠菜产业从业者必备网站**
 
-- 链接: https://t.me/bodu365 - 935 位成员
+- 链接: https://t.me/bodu365 - 752 位成员
   51博官方网址： 51b.com51博官方频道： @www51boapp51博官方群组： @www51bcom51博新闻资讯： @news51b51博群组搜索： @sohao123451博招聘群组： @bozp8
 
 **# hao123电子书 自发秩序姨学资源 book 电子书**
 
-- 链接: https://t.me/librarybook123 - 2736 位成员
+- 链接: https://t.me/librarybook123 - 2749 位成员
   不博学，是无产阶级行为。欢迎加入自由群，共创大业https://t.me/ak47wuwu一些书籍资源，电子书收集，重点在历史经济一类的硬通货书籍。
 
 **# 币圈财经新闻**
 
-- 链接: https://t.me/Btc_789 - 5318 位成员
+- 链接: https://t.me/Btc_789 - 5286 位成员
   【CoinNews社群导航】@coinnews1234 【社群负责人】@Tony_coinnews
 
 **# 茂名电报群**
@@ -757,6 +756,11 @@
 
 - 链接: https://t.me/BLGJZB - 53377 位成员
   铂莱集团官方直营铂莱官方频道 @BLGJVIP铂莱娱乐频道 @BLGJGF《福利|鉴黄》 @BLJTFL《头条|搞笑|吃瓜》 @BLGJXW铂莱直播二群（可广告） @BLGJZ 新闻爆料投稿 @BLGJKFBOT铂莱官方客服 @BLJT01
+
+**# 【网红|吃瓜|暗网|黑料】**
+
+- 链接: https://t.me/heiliao6888 - 19138 位成员
+  欢迎来到🍉【网红|吃瓜|暗网|黑料】，这里持续更新各界黑料/社会热点🤝【广告商务合作】 @yaan888 👈
 
 **# 信号旗规则**
 
