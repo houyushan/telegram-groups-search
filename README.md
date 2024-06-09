@@ -21,7 +21,7 @@
   chat_description
 
 ### 中文群组大全
-- 链接: https://t.me/+Ci4CFK26TpwxNjVl - 32 位成员
+- 链接: https://t.me/+Qg8Y5e_uTrtmNDQ1 - 32 位成员
   NULL
 
 ### 学霸123索引联盟壹号🚩
@@ -38521,7 +38521,7 @@
   NULL
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
-- 链接: https://t.me/+Yavb_8X_c3JjMjU9 - 42 位成员
+- 链接: https://t.me/+ZIyqo3jTvEo2Y2Nl - 42 位成员
   不定时更新各种资源
 
 ### 反差👿学生💋萝莉 少女 福利社🔥
