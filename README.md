@@ -25,7 +25,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+6MJDocuYadFiYzBl - 325 位成员
+- 链接: https://t.me/+KKMFV7fqze4wYmU1 - 325 位成员
   NULL
 
 ### ALL About RSS
@@ -65,7 +65,7 @@
   OpenAI状态页通知 | 汇集全网ChatGPT/AI新闻🔖标签：#AI #ChatGPT📎服务发布页: https://link3.cc/gpt123🌐免费AI聊天: https://free.netfly.top🪜API中转:     https://api.g4f.icu （gpt-4低至0.76折 支持Claude-3/联网/文件分析/MJ画图）Buy ads: https://telega.io/c/AI_News_CN
 
 ### AI绘画｜AI视频
-- 链接: https://t.me/AI_Pintura - 25450 位成员
+- 链接: https://t.me/AI_Pintura - 25536 位成员
   分享AI绘画、AI视频相关资源与技巧。同时也会分享图像处理与视频处理相关的资源与技巧。商务合作联系： @KiwiCanada
 
 ### 高中生反差萝莉白虎
@@ -137,7 +137,7 @@
   一个常年秋风萧瑟的频道 🍂目前主要分享Android/Windows的软件和相关的文章与教程，以及一些乐子事。偶尔还会有喜加一内容频道内容允许转载，转载请带来源。没事可以来附属群组吹水。同时,欢迎投稿。Tips：评论请加群，指纹入群验证。不欢迎政治/血腥暴力/黑灰等不宜讨论的话题频道所有软件仅供学习交流，不得用于任何形式的商业活动，所有可供下载的内容请于下载后24小时内删除。频道所有软件严禁在国内任何平台传播。频道消息不代表本频道观点。
 
 ### ChatGPT 精选
-- 链接: https://t.me/AwesomeChatGPT - 9250 位成员
+- 链接: https://t.me/AwesomeChatGPT - 9259 位成员
   ChatGPT 精选资源
 
 ### 一起偷偷观察 DIYgod
@@ -157,7 +157,7 @@
   本频道会不定时推送一些绅士老爷们喜闻乐见的福利闲聊＆报错＆申诉: @nekopara关联频道: @moepic @nekosc @MagicCabal
 
 ### 那些好看的Tg主题
-- 链接: https://t.me/beautifultgtheme - 8690 位成员
+- 链接: https://t.me/beautifultgtheme - 8700 位成员
   分享一些好看的Telegram主题大部分是Android,官方如果你需要TgX、IOS、或PC桌面版的主题，请联系我，我尽量做友情链接:https://t.me/kankanjianjie 其他业务开展了！
 
 ### Blu-ray Project | 蓝光视频工程
@@ -577,7 +577,7 @@
   Linux 日常软件收录 日常应用 github软件 小众软件 游戏 软件更新 Steam
 
 ### chatGPT中文社区
-- 链接: https://t.me/LptTech - 30083 位成员
+- 链接: https://t.me/LptTech - 30156 位成员
   AI一年，人间十年✏️ 投稿 @FreonLiquid🫦 群组 https://t.me/Road2aiworld🏂 频道 https://t.me/LptTech📻 Discord https://discord.gg/3ggyJ8SV4F#chatGPT #互联网 #科技 #AI #人工智能
 
 ### 撸猫社
@@ -53889,11 +53889,11 @@
   本群主要技术资源分享：- 技术资料- 技术资源- 技术工具- 技术心得- 技术热点为了让交流更多效率：- 鼓励有价值的内容、有深度的思考- 鼓励友善、互相帮助、努力学习的氛围- 不要做伸手党、盗版党、破解党- 提问前先看看《提问的智慧》- 适当聊天讨论翻墙，千万不要灌水- 禁止开车、广告和商业推广- 禁止任何仇恨、煽动、歧视的言论- 禁止有政治、宗教、性别攻击倾向的言论- 禁止低级趣味下流庸俗的内容分享沉淀：https://t.me/gotoshare
 
 ### ChatGPT使用指南|AI资讯分享
-- 链接: https://t.me/ChatGPTAndAI - 2577 位成员
+- 链接: https://t.me/ChatGPTAndAI - 2579 位成员
   广泛介绍ChatGPT在各行各业各个领域的使用案例 最好可以通过ChatGPT搞钱！
 
 ### 抖音短剧|精彩爽文
-- 链接: https://t.me/remenduanju - 6345 位成员
+- 链接: https://t.me/remenduanju - 6355 位成员
   🏆🏆🏆稳定频道，稳定流量，定期新增🏆🏆🏆稳定频道，稳定流量，定期新增稳定精彩短剧更新，持续收录热门和经典短剧，给您更好和更多的感官体验，致力于完善更好更全的流量短剧频道🏆🏆🏆引流合作： @damomissyuan商务洽谈: https://t.me/youxibaling
 
 ### 中国数字时代 RSS
@@ -53905,11 +53905,11 @@
   【关于】RSS 地址：https://www.ithome.com/rss/【更多】RSS 频道收集，探索 telegram 与 RSS：@rss_channels反馈请联系：@rss_channels_helper_bot
 
 ### NS订阅提醒交流群
-- 链接: https://t.me/+lN5aqXRQwBE0ZjA1 - 88 位成员
+- 链接: https://t.me/+lN5aqXRQwBE0ZjA1 - 89 位成员
   NULL
 
 ### 📽️看电影·午夜场
-- 链接: https://t.me/Moviesontg - 3220 位成员
+- 链接: https://t.me/Moviesontg - 3244 位成员
   经典电影分享云盘&BT资源: @BTCloudlinks其他TG资源: @Searchevtg讨论组: @Moviescommun联系方式: @Moviesmidnight_bot
 
 ### 🔥WS群发 | FB群发 | INS群发 | TK矩阵 | 获客引流 | 拓客引流 | 云推客！全球|全渠道引流|系统、自动获客工具
@@ -53953,11 +53953,11 @@
   不定时更新资源
 
 ### 风🌎景·喵
-- 链接: https://t.me/fjMiao - 510 位成员
+- 链接: https://t.me/fjMiao - 513 位成员
   好看的。#风景 #好看 #美景 #图片 #自然 #壁纸
 
 ### 风组交流群
-- 链接: https://t.me/+tazgskOR-sMyOWVl - 181 位成员
+- 链接: https://t.me/+tazgskOR-sMyOWVl - 178 位成员
   针对某些人群，共享高度共鸣干货。
 
 ### 给猫主子请安丨Cats' Royal Salute
@@ -54105,8 +54105,8 @@
   🔥WS群发 | FB群发 | INS群发 | TK矩阵 | 获客引流 | 拓客引流 | 云推客！全球|全渠道引流|系统、自动获客工具。功能：采集指定国家任意大V粉丝，自动控制大量账号，全自动私信群发，拉群群发日发100W+ ，日获客100+  适合所有行业，可远程，可实地考察公司，公司福州～需要获客系统联系唯一飞机: @YunTuiKe_Luo微信：YunTuiKeKeJi
 
 ### 📺电视剧·精选频道
-- 链接: https://t.me/TVplaysontg - 1714 位成员
-  精选剧集分享云盘&BT资源: @BTCloudlinks足球新闻: @Soccersontg电影新闻: @Filmnewsontg
+- 链接: https://t.me/TVplaysontg - 1727 位成员
+  精选剧集分享云盘&BT资源: @BTCloudlinks更多TG资源: https://t.me/+RCaW4fAyeew2N2Zl足球新闻: @Soccersontg
 
 ### 高原味传奇调制群
 - 链接: https://t.me/+TmfGAW6jc5Q3NTQ1 - 5 位成员
@@ -54117,7 +54117,7 @@
   NULL
 
 ### 传奇端公益修复
-- 链接: https://t.me/+XdKhozDLrgwyMTc1 - 12 位成员
+- 链接: https://t.me/+XdKhozDLrgwyMTc1 - 13 位成员
   NULL
 
 ### 全国高端莞式海选会所
