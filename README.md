@@ -25,7 +25,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+L22mnpv-4ZI3Zjll - 356 位成员
+- 链接: https://t.me/+3mCMx4gHyh8wNWM1 - 357 位成员
   NULL
 
 ### ALL About RSS
@@ -55907,4 +55907,8 @@
 ### 华夏索引
 - 链接: https://t.me/huaxia123_bot - 123 位成员
   TG必备神器，找到您感兴趣的群组、频道和机器人！欢迎使用@huaxia123_bot 机器人。关注官方通知频道 @huaxia188
+
+### cos/福利姬/萝莉/二次元
+- 链接: https://t.me/cosorry - 70197 位成员
+  不定时更新 只发精品
 
