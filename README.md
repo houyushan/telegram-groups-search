@@ -25,7 +25,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+tIEKEEV0Scc5YmE1 - 358 位成员
+- 链接: https://t.me/+ylL1O5UckXs0ODNl - 358 位成员
   NULL
 
 ### ALL About RSS
