@@ -21,11 +21,11 @@
   chat_description
 
 ### 中文群组大全
-- 链接: https://t.me/+G40DXSFQXtI3YTk9 - 43 位成员
+- 链接: https://t.me/+JlUb-b8UXmVjYzM1 - 44 位成员
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+R4tkFG_rH4gwMDE1 - 384 位成员
+- 链接: https://t.me/+oWrr7NGI_8g2NmU1 - 386 位成员
   NULL
 
 ### ALL About RSS
