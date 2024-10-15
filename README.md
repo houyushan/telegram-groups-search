@@ -25,7 +25,7 @@
   NULL
 
 ### 学霸123索引联盟壹号🚩
-- 链接: https://t.me/+BSqL5cjwTds5ZWNl - 384 位成员
+- 链接: https://t.me/+Ch4hcKhCncI2MGM1 - 383 位成员
   NULL
 
 ### ALL About RSS
@@ -42837,7 +42837,7 @@
   不定时更新 资源搜索群全网资源任意搜https://t.me/sou880
 
 ### ssrv2机场节点每日分享
-- 链接: https://t.me/+PDokS8XQAVVmZWFl - 5 位成员
+- 链接: https://t.me/+1mPThLkkTKM1OGY1 - 5 位成员
   NULL
 
 ### 华纳国际 真人视讯 PG电子 JDB电子官方 合作伙伴
