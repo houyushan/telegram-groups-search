@@ -21,7 +21,7 @@
   chat_description
 
 ### 中文群组大全
-- 链接: https://t.me/+JlUb-b8UXmVjYzM1 - 44 位成员
+- 链接: https://t.me/+JXJmf0-qTTcxY2E1 - 47 位成员
   NULL
 
 ### 学霸123索引联盟壹号🚩
