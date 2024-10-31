@@ -42837,7 +42837,7 @@
   不定时更新 资源搜索群全网资源任意搜https://t.me/sou880
 
 ### ssrv2机场节点每日分享
-- 链接: https://t.me/+W0-fx5QRk5swNGE9 - 5 位成员
+- 链接: https://t.me/+7mrAQbcYIRE4YjNl - 5 位成员
   NULL
 
 ### 华纳国际 真人视讯 PG电子 JDB电子官方 合作伙伴
