@@ -55928,3 +55928,11 @@
 - 链接: https://t.me/+YZxs7nnIQ-ljOWRl - 1012 位成员
   NULL
 
+### 一休技术交流群🅥
+- 链接: https://t.me/yxjsjl - 3383 位成员
+  ⚠️群主的一切都在置顶里🚫本群禁止讨论任何政治内容 && NSFW内容 ，尤其禁止嘲讽群友和引战的行为，违者将永久移至小黑屋❗️有违规信息或广告投放请 @yixiutg1 管理员，群内不允许发任何未经证实的广告YouTuBe:  https://youtube.com/@yixiu001Blog: https://yixiu.icuGitHub: https://github.com/yixiu001
+
+### VPS|CloudFlare|免费工具技术分享🅥
+- 链接: https://t.me/Yxjsfx - 3813 位成员
+  本频道主要分享电报、实用工具、VPN、cloudFlare、Github项目等方面技术与信息全网唯一联系方式：@yixiutg1
+
