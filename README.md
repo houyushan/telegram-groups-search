@@ -133,8 +133,8 @@
   Arch Linux 中文相关信息跟进 Arch Linux 日常踩坑预警，翻译官方新闻， testing 测试预警等。另有 @archlinuxcn_updates 提供滚动打包记录。频道内容来自 Arch Linux 中文社区群组 @archlinuxcn_grouphttps://fars.ee/~readme.html
 
 ### 秋风のとおり道
-- 链接: https://t.me/AWAvenue - 21236 位成员
-  一个常年秋风萧瑟的频道 🍂目前主要分享Android/Windows的软件和相关的文章与教程，以及一些乐子事。偶尔还会有喜加一内容频道内容允许转载，转载请带来源。没事可以来附属群组吹水。同时,欢迎投稿。Tips：评论请加群，指纹入群验证。不欢迎政治/血腥暴力/黑灰等不宜讨论的话题频道所有软件仅供学习交流，不得用于任何形式的商业活动，所有可供下载的内容请于下载后24小时内删除。频道所有软件严禁在国内任何平台传播。频道消息不代表本频道观点。
+- 链接: https://t.me/AWAvenue - 26069 位成员
+  一个常年秋风萧瑟的频道 🍂个人向博客类频道，偶尔分享一些乐子事。以及EPIC/Steam喜加一内容频道内容允许转载，转载请带来源。没事可以来附属群组吹水。广告联系: @SuperCowboyTips：评论请加群，指纹入群验证。不欢迎政治/血腥/黑灰等不宜讨论的话题频道所有软件仅供学习交流，不得用于任何形式的商业活动，所有可供下载的内容请于下载后24小时内删除。频道所有软件严禁在国内任何平台传播。频道消息不代表本频道观点。
 
 ### ChatGPT 精选
 - 链接: https://t.me/AwesomeChatGPT - 9358 位成员
@@ -7929,7 +7929,7 @@
   分享免费实用高效率网络资源、黑科技软件、实用黑技巧。本群禁色情、禁广告！如被机器人误封联系 @chuanhuatongbot
 
 ### 飞鱼资源分享|冲浪指南|软件工具
-- 链接: https://t.me/feiyu123 - 47093 位成员
+- 链接: https://t.me/feiyu123 - 53000 位成员
   分享一些工具，软件，浏览器插件脚本，网站,歌曲，互联网相关资讯，开源项目，碎碎念的想法 等等。投稿互推合作机器人： @feiyutian_bot
 
 ### python 自学交流
@@ -34165,7 +34165,7 @@
   NULL
 
 ### 青鸟的频道
-- 链接: https://t.me/bluebird_channel - 3911 位成员
+- 链接: https://t.me/bluebird_channel - 7194 位成员
   青鸟的日常和吐槽和段子和群友故事
 
 ### 小果子｜专业iOS越狱交流频道
@@ -35633,7 +35633,7 @@
   我们致力以浅显易懂的文字、丰富精彩的图片为大家打开一扇关心地球大小事、理解国际要闻的入门窗。在这里，你可以看到地球的各种风貌，无论是政治经济、社会文化、科普新知、暖心趣闻这里通通有。你想看的国际要闻，都在DQ地球图辑队！https://dq.yam.com（非官方搬运）
 
 ### 小红书精选
-- 链接: https://t.me/xiaohongshu_001 - 2350 位成员
+- 链接: https://t.me/xiaohongshu_001 - 4801 位成员
   我们将从投稿中筛选出真实、善意、公允的内容，努力为大家提供一个脱离平台算法，真正服务于读者的内容精选。如需撤稿，请在评论区联系我们。我们谢绝营利性质或政府性质的合作，还请见谅。如果您想关注更多频道，欢迎参考： t.me/channel_push
 
 ### 台灣群 - 中部 & 南部聊天室
@@ -35973,8 +35973,8 @@
   🌚看完就不想来 UIC 的频道🌝👉uic.icu✉️投稿 submission@uic.icu
 
 ### 秘密小频道(树洞）
-- 链接: https://t.me/chxpd - 42720 位成员
-  匿名或带用户名投稿自己的秘密，忏悔，后悔，内心感触或过错行为等等，请勿投稿以下内容：字数太短，复制别人的帖子，编造，带节奏，色情，恐怖，个人身份信息等等，友情频道： @fa_dian 投稿Bot:  @bdtougao_bot
+- 链接: https://t.me/chxpd - 132916 位成员
+  匿名或带用户名投稿自己的秘密，忏悔，后悔，内心感触或过错行为等等，请勿投稿以下内容：字数太短，复制别人的帖子，编造，带节奏，色情，恐怖，个人身份信息等等，友情频道： @fa_dian 投稿Bot:  @shudong123bot
 
 ### 布告栏上的贴纸
 - 链接: https://t.me/noticeboardthings - 17 位成员
@@ -37185,7 +37185,7 @@
   NULL
 
 ### 凛の碎碎念
-- 链接: https://t.me/rinrinmoe - 2563 位成员
+- 链接: https://t.me/rinrinmoe - 3262 位成员
   NULL
 
 ### 顶级机场频道
@@ -54201,7 +54201,7 @@
   色影师图片|福利姬|网红|国产 @SESV_fuligril色影师图片|coser @SESV_coser色影师影片|91|国产|SWAG @SESV_Swagporn色影师影片|日本AV|FC2 @SESV_FC2_AV色影师影片|精选影片|欧美|日本|中国 @SESV_Premium_AV色影师讨论群总群 @SESV_talk
 
 ### 雨后天晴
-- 链接: https://t.me/Enj0ysh4ring - 3890 位成员
+- 链接: https://t.me/Enj0ysh4ring - 3976 位成员
   资料，工具，网站，想法，日常内容有三类：关注、安利、吐槽较偏个人向
 
 ### 少女馆
@@ -55288,9 +55288,9 @@
 - 链接: https://t.me/Xia_jiaoya - 3760 位成员
   NULL
 
-### MIKU的小窝🎄
-- 链接: https://t.me/onelazyfish - 11089 位成员
-  🐟🐟🐟🐟🐟🐟～
+### MIKU的小窝 🪭
+- 链接: https://t.me/onelazyfish - 11705 位成员
+  🐟🐟🐟🐟🐟🐟～想法想法想法想法~
 
 ### Bestrara云#翻墙#机场#梯子#VPN#节点
 - 链接: https://t.me/Bestrara - 1324 位成员
@@ -55945,8 +55945,8 @@
   NULL
 
 ### 冷藏馆
-- 链接: https://t.me/lengcangguan - 97 位成员
-  冷藏馆收藏冷频率更新的频道。
+- 链接: https://t.me/lengcangguan - 116 位成员
+  有价值的内容频道，不更的频道坟墓区。
 
 ### 苹果ipa软件下载
 - 链接: https://t.me/ipaxz - 9448 位成员
@@ -56061,7 +56061,7 @@
   Genshin 原神  Buy ads: https://telega.io/c/GenshinFineCollect
 
 ### 万物说明书
-- 链接: https://t.me/FmeetR - 5596 位成员
+- 链接: https://t.me/FmeetR - 6169 位成员
   万物说明书电子图书馆1万G分之一的小书馆频道内书籍顺序A—Z，自己淘着玩有需要购买电子版书籍的可以找我承接各种资源搜索项目商务合作及咨询：  @Foxmeetrabbit
 
 ### 除了川普谁都行
@@ -56872,9 +56872,9 @@
 - 链接: https://t.me/ohmyusers - 3262 位成员
   记录用户迷惑行为，电子文盲物流中心投稿去 @OMU_Chat机场用户高危名录 @AirportRisk
 
-### 零度资源-软件破解
-- 链接: https://t.me/LDAPK - 4926 位成员
-  🍀     每日分享优质资源 破解软件☘️     影视资源 便携工具 游戏资源 @LDZYW
+### 零度资源分享-破解软件/影视分享
+- 链接: https://t.me/LDAPK - 40768 位成员
+  🍀     每日分享优质资源 破解软件☘️     影视资源 便携工具 游戏资源 🐸     广告/投稿/反馈 @LDZYW
 
 ### 𝕎𝔼电报频道精选推荐
 - 链接: https://t.me/+s6fMa9U7wVhjYzc1 - 14387 位成员
@@ -57143,4 +57143,32 @@
 ### 1
 - 链接: https://t.me/+XIsJ7_CY2HNmYWJl - 2 位成员
   NULL
+
+### 有价值的兴趣
+- 链接: https://t.me/ValoHobby - 37 位成员
+  未开拓或已开拓的兴趣。
+
+### 电影解说🎥电影频道在线看🅥
+- 链接: https://t.me/yybbb - 5995 位成员
+  【电影解说、短影集、电影视频】分享                                                       币圈即时新闻资讯👉 @ddbbb 吃瓜搞笑段子                            👉 @xxbbb
+
+### Fang的资源分享群
+- 链接: https://t.me/FLMdongtianfudi - 19896 位成员
+  一个综合类的资源分享频道，每天分享有趣、有用的网站、软件、工具、应用、小说、影视等等网盘资源: t.me/FLMdongtianfudi资源搜索群: t.me/FLMziyuansousuoTwitter: x.com/FLMdongtianfudi投稿/广告/合作请留言： @BaiNingbingbot
+
+### 综合资源分享中心
+- 链接: https://t.me/PJAPKKKK - 19614 位成员
+  ❤️本频道只有这一个主频道没有任何副频道分享安卓，游戏，加速器，机场等各种类型
+
+### 圆故事完美结局
+- 链接: https://t.me/+ZFFYD0ZE5OU0MGVl - 1 位成员
+  故事烂尾？断更，不再更？那心理真不好受，不如设想一个完美结局，这样心理也会好受了，也就折中圆满体验了。
+
+### V2EX 最热主题
+- 链接: https://t.me/v2ex_hot - 1181 位成员
+  v2ex最热主题 RSS推送www.V2EX.comV2EX is a community of start-ups, designers, developers and creative people. V2EX 是创意工作者们的社区。V2EX 希望能够成为创意工作者们的生活和事业的一部分。交流群组： @v2ex_chat
+
+### 折腾实验室频道
+- 链接: https://t.me/TossLabChannel - 8549 位成员
+  📢群组: @TossLab🎈频道: @TossLabChannel青龙面板玩转自动化，Task签到任务收割乐趣，Docker容器装满脑洞，VPS服务器折腾到底，Github项目探秘新世界！热爱折腾，永不停歇，爱折腾就来！
 
