@@ -525,7 +525,7 @@
   [SFW] 致力于传播快乐分享一些趣图、萌宠和可爱的东西NSFW沙雕图友链: @wtmsd推荐梯子:  https://suo.yt/AwRopr9
 
 ### 科技&趣闻&杂记
-- 链接: https://t.me/kejiqu - 34020 位成员
+- 链接: https://t.me/kejiqu - 34139 位成员
   分享有价值、有趣的信息！你也可以来投稿，包括但不限于科技新闻、知识、影视娱乐资讯....投稿 @kejiqubot群组 @kejiquchat合作联络 @SlowDayBot
 
 ### Kindle 特价书
@@ -3333,7 +3333,7 @@
   《瑞克和莫蒂》（Rick and Morty ）粉丝们，欢腾起来吧。主频道 @tingtalk副频道 @tingtalk_all
 
 ### 突发新闻
-- 链接: https://t.me/breakingnews_t - 9074 位成员
+- 链接: https://t.me/breakingnews_t - 9077 位成员
   突发新闻推送服务（简体中文）非严肃版Channel：https://telegram.me/now_t深度报道：http://dudu.zhihu.com/circle/167643
 
 ### Price Tag Friends
@@ -7933,7 +7933,7 @@
   分享一些工具，软件，浏览器插件脚本，网站,歌曲，互联网相关资讯，开源项目，碎碎念的想法 等等。投稿互推合作机器人： @feiyutian_bot
 
 ### python 自学交流
-- 链接: https://t.me/P_Y_T_H_O_N - 7212 位成员
+- 链接: https://t.me/P_Y_T_H_O_N - 7226 位成员
   学习、分享、成长
 
 ### Python潮流周刊🐍
@@ -24529,7 +24529,7 @@
   订制视频、导量曝光、独家授权、内容交换、商务合作，欢迎洽询
 
 ### 易学 论道 | 科学 变化
-- 链接: https://t.me/yiology - 6888 位成员
+- 链接: https://t.me/yiology - 6151 位成员
   朝闻道 夕死可矣        有事没事 翻翻咱祖宗留下来各种经书各种乱七八糟的老东西 从国学啊黄老之道啊到坑蒙拐骗(划掉) 当然也欢迎有其他思想和各国乱七八糟神秘学爱好者         以前加的相关群 一个个都是常常发各种灵异怪谈之类的尴尬小段子奇谈鬼故事 没多少真正学习研究的 于是自己开一个好了 (虽然并不期待 TG 能有多少人感兴趣...群规： https://t.me/Yiology/321793武术功法推手群： @martialArtX安卓手机讨论组： @AndroidDiscuss
 
 ### 寒姐的作品推荐群
@@ -32037,7 +32037,7 @@
   书籍/资源分享/搬运本频道资源来源于网络，版权归原作者所有，仅限于个人学习交流频道：https://t.me/Gystore2群组：https://t.me/Gystore_chat
 
 ### Windows 10+1 记录
-- 链接: https://t.me/Windows10Rs5 - 451 位成员
+- 链接: https://t.me/Windows10Rs5 - 468 位成员
   提供最新的 Windows、Surface、Xbox、Microsoft 365、Office、Copilot 等微软产品的资讯信息、使用技巧以及产品体验等内容。                                        网站：https://windiscover.com 相关频道 — 微软新闻频道 @trywindows                  群组 @WinNy101管理群 @huaguanYJ
 
 ### 抖音 美女 合集
@@ -33993,7 +33993,7 @@
   分享自己的所思所想，对书本、时事的一些看法。
 
 ### 📖电子书|有声书|杂志|PDF资料
-- 链接: https://t.me/EbookPDF_Library - 17389 位成员
+- 链接: https://t.me/EbookPDF_Library - 21135 位成员
   电子书/有声书/杂志/免费分享【责任声明】本频道分享的所有图书资料均收集于网络，无任何利益行为，如有侵犯作者及出版方权益，请联系本频道及时删除。书籍讨论群：https://t.me/tushujiao
 
 ### 收藏夹|收藏高质量的内容
@@ -45481,7 +45481,7 @@
   记录本人观点Twitter：利维坦冲浪里（@LVTGW666）： https://twitter.com/LVTGW666?t=RnGmiReFcDpMimldBVLZ9g&s=09
 
 ### AI Copilot
-- 链接: https://t.me/AI_Copilot_Channel - 6306 位成员
+- 链接: https://t.me/AI_Copilot_Channel - 7682 位成员
   这是一个关于 AI 的非营利频道。This is a non-profit channel about AI.by @cnpcmx
 
 ### 永久曝光贱狗博物馆
@@ -54201,7 +54201,7 @@
   色影师图片|福利姬|网红|国产 @SESV_fuligril色影师图片|coser @SESV_coser色影师影片|91|国产|SWAG @SESV_Swagporn色影师影片|日本AV|FC2 @SESV_FC2_AV色影师影片|精选影片|欧美|日本|中国 @SESV_Premium_AV色影师讨论群总群 @SESV_talk
 
 ### 雨后天晴
-- 链接: https://t.me/Enj0ysh4ring - 3974 位成员
+- 链接: https://t.me/Enj0ysh4ring - 3977 位成员
   资料，工具，网站，想法，日常内容有三类：关注、安利、吐槽较偏个人向
 
 ### 少女馆
@@ -57153,11 +57153,11 @@
   【电影解说、短影集、电影视频】分享                                                       币圈即时新闻资讯👉 @ddbbb 吃瓜搞笑段子                            👉 @xxbbb
 
 ### Fang的资源分享群
-- 链接: https://t.me/FLMdongtianfudi - 21532 位成员
+- 链接: https://t.me/FLMdongtianfudi - 21754 位成员
   一个综合类的资源分享频道，每天分享有趣、有用的网站、软件、工具、应用、小说、影视等等网盘资源: t.me/FLMdongtianfudi资源搜索群: t.me/FLMziyuansousuoTwitter: x.com/FLMdongtianfudi投稿/广告/合作请留言： @Fangtiann_bot
 
 ### 综合资源分享中心
-- 链接: https://t.me/PJAPKKKK - 22901 位成员
+- 链接: https://t.me/PJAPKKKK - 23259 位成员
   ❤️本频道只有这一个主频道没有任何副频道分享安卓，游戏，加速器，机场等各种类型
 
 ### 圆故事完美结局
@@ -57177,19 +57177,19 @@
   每日分享破解软件，影视，小说，漫画，VPN，老司机等优质资源！ 广告投放联系 @LDZYW  收徒/拜师联系 @LDZYW
 
 ### ふみや音楽工房
-- 链接: https://t.me/iMarine_Project - 4129 位成员
+- 链接: https://t.me/iMarine_Project - 4155 位成员
   ふみや创立的音频后期研修企划iMarine Project作品发布点,不定期提供各式各样的免费音源,翻唱和同人音乐较多,也分享原曲,部分作品为经过修复处理的重混音作品,伸手扩散请随意,建议使用链接分享 交流群 https://t.me/+mU79mFzTAPs1MTY0 华语分频道 @LunaProject_SubChan
 
 ### Epic 每周白嫖资讯
-- 链接: https://t.me/WeeklyFreeEpicGames - 2168 位成员
+- 链接: https://t.me/WeeklyFreeEpicGames - 2186 位成员
   每周为你推送一款或几款 Epic Games 免费游戏。聊天群组 @WeeklyFreeEpicGamesChat卖动的摸鱼日常 @MaiTungTM_Notes#喜加一 #EpicGames
 
 ### 百事通-知识问答频道🌾
-- 链接: https://t.me/zhishidashen - 12009 位成员
+- 链接: https://t.me/zhishidashen - 12239 位成员
   🥰百事通频道投稿机器人上线，欢迎使用！👉投稿机器人👉  @baishitong123_bot
 
 ### 妹子视频|美女视频|茶馆
-- 链接: https://t.me/youshipin - 409 位成员
+- 链接: https://t.me/youshipin - 406 位成员
   美女,妹子视频收藏
 
 ### 活在最美好最温暖的光明中
@@ -57197,15 +57197,15 @@
   NULL
 
 ### 利器✨软件工具与开源项目
-- 链接: https://t.me/edgebyte - 13410 位成员
+- 链接: https://t.me/edgebyte - 13587 位成员
   利器可以是一件物品、软件、工具或者服务，能提供解决方案的，都是利器。合作 @allmistbot
 
 ### 安卓手游分享（实测）
-- 链接: https://t.me/android_game_share - 1022 位成员
+- 链接: https://t.me/android_game_share - 1051 位成员
   分享各种steam移植手游、破解手游等，所有游戏均已实测打开才会发布❗️
 
 ### 新功能创意
-- 链接: https://t.me/+OWb4qCcxS2U3YjI9 - 23 位成员
+- 链接: https://t.me/+OWb4qCcxS2U3YjI9 - 28 位成员
   未实现的软件功能服务新创意
 
 ### 华人时报｜海外版
